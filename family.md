@@ -21,6 +21,7 @@ Scotland Church of Scotland
 
 * March 1 St. David's Day Patron Saint of Wales
 * March 8 [International Women's Day](https://en.wikipedia.org/wiki/International_Women%27s_Day)
+* March 14 Saint Matilda of Ringelheim
 * March 17 St. Patrick Patron Saint of Ireland
 * March 20 [International Francophonie Day](https://en.wikipedia.org/wiki/International_Francophonie_Day)
 * March 25 Maryland Day
@@ -28,6 +29,7 @@ Scotland Church of Scotland
  **April** [Confederate History Month](https://en.wikipedia.org/wiki/Confederate_History_Month)
 * April 6:  [National Tartan Day](https://en.wikipedia.org/wiki/National_Tartan_Day "National Tartan Day")
 * April 23 St. George Patron Saint of England
+* April 24 St. Doda Feast Day
 * April 26  [Confederate Memorial Day](https://en.wikipedia.org/wiki/Confederate_Memorial_Day)
 
 **May:**  [Jewish American Heritage Month](https://en.wikipedia.org/wiki/Jewish_American_Heritage_Month)
@@ -42,8 +44,12 @@ Scotland Church of Scotland
 
 - July 1 [Canada Day](https://en.wikipedia.org/wiki/Canada_Day)
 - July 4: [Independence Day](https://en.wikipedia.org/wiki/Independence_Day_(United_States) "Independence Day (United States)")
+- July 8 King Edward of Wessex Feast Day
+- July 14 Bastille Day
+- July 18 St Arnulf of Metz Feast Day
 - July 30 [Friendship Day](https://en.wikipedia.org/wiki/Friendship_Day)
 - August 1 [National Day](https://en.wikipedia.org/wiki/Swiss_National_Day "Swiss National Day")
+- August 25 St. Louis Capet Feast Day
 
 -   1st Sunday after Labor Day:  [National Grandparents' Day](https://en.wikipedia.org/wiki/National_Grandparents%27_Day "National Grandparents' Day")
 -   4th Monday in September:  [Family Day](https://en.wikipedia.org/wiki/Family_Day "Family Day")
