@@ -1,4 +1,4 @@
-[Apostles Creed](https://en.wikipedia.org/wiki/Apostles%27_Creed): Old Catholic, Lutheran, Anglican, Methodist, Heugonots, Dutch Reformed
+[Apostles Creed](https://en.wikipedia.org/wiki/Apostles%27_Creed): [Old Catholic](https://en.wikipedia.org/wiki/Old_Catholic_Church), Lutheran, Anglican, Methodist, Heugonots, Dutch Reformed
 
  [Preamble to the National Council of Churches of Christ](https://en.wikipedia.org/wiki/National_Council_of_Churches) Friends General Conference, Disciples of Christ, American Baptist
 
@@ -12,7 +12,8 @@ Netherlands Dutch Reformed Church
 Scotland Church of Scotland 
 
 
-* January 28 Charlemagne Feast Day
+* January 28 [Charlemagne](https://en.wikipedia.org/wiki/Charlemagne) [Feast Day](https://www.traditioninaction.org/History/A02CharlemagneTribute.html)
+* February 21 [Pepin of Landen](https://en.wikipedia.org/wiki/Pepin_of_Landen) Feast Day
 * March 1 St. David's Day Patron Saint of Wales
 * March 17 St. Patrick Patron Saint of Ireland
 * April 23 St. George Patron Saint of England
