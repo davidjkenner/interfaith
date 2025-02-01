@@ -36,6 +36,7 @@ Scotland Church of Scotland
 - 1st Thursday in May:  [National Day of Prayer](https://en.wikipedia.org/wiki/National_Day_of_Prayer "National Day of Prayer")
 -   2nd Sunday in May:  [Mother's Day](https://en.wikipedia.org/wiki/Mother%27s_Day "Mother's Day")
 * May 2 [National Youth Day](https://en.wikipedia.org/wiki/National_Youth_Day "National Youth Day")
+* May 4 Feast of the English Martyrs
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
 * June 14:  [Flag Day](https://en.wikipedia.org/wiki/Flag_Day_in_the_United_States "Flag Day in the United States")
