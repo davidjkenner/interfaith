@@ -77,7 +77,7 @@ Scotland Church of Scotland
 
 **October** Octoberfest and German Heritage Month
 * October 6 German-American Day
-* October 26 [Alfred the Great](https://en.wikipedia.org/wiki/Alfred_the_Great) Feast Day
+* October 26 [Alfred the Great](https://en.wikipedia.org/wiki/Alfred_the_Great) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=1262)
 
   
 * November 2 Day of the Dead
