@@ -1,4 +1,4 @@
-[Apostles Creed](https://en.wikipedia.org/wiki/Apostles%27_Creed): [Old Catholic](https://en.wikipedia.org/wiki/Old_Catholic_Church), Lutheran, Anglican, Methodist, Heugonots, Dutch Reformed
+[Apostles Creed](https://en.wikipedia.org/wiki/Apostles%27_Creed): [Old Catholic](https://en.wikipedia.org/wiki/Old_Catholic_Church), Lutheran, Anglican, Methodist, Heugonots, Dutch Reformed, Mennonites
 
  [Preamble to the National Council of Churches of Christ](https://en.wikipedia.org/wiki/National_Council_of_Churches) Friends General Conference, Disciples of Christ, American Baptist
 
@@ -37,6 +37,7 @@ Scotland Church of Scotland
 -   2nd Sunday in May:  [Mother's Day](https://en.wikipedia.org/wiki/Mother%27s_Day "Mother's Day")
 * May 2 [National Youth Day](https://en.wikipedia.org/wiki/National_Youth_Day "National Youth Day")
 * May 4 Feast of the English Martyrs
+* May 7 [St. Gisela of Hungary](https://en.wikipedia.org/wiki/Gisela_of_Hungary) Feast Day
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
 * May 24 [St. David of Scotland](https://en.wikipedia.org/wiki/David_I_of_Scotland) Feast Day
