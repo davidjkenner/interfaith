@@ -31,7 +31,7 @@ Scotland Church of Scotland
 * April 6:  [National Tartan Day](https://en.wikipedia.org/wiki/National_Tartan_Day "National Tartan Day")
 * April 22 Oklahoma Day
 * April 23 St. George Patron Saint of England
-* April 24 St. Doda Feast Day
+* April 24 [St. Doda](https://en.wikipedia.org/wiki/Doda_of_Reims) Feast Day
 * April 26  [Confederate Memorial Day](https://en.wikipedia.org/wiki/Confederate_Memorial_Day)
 
 **May:**  [Jewish American Heritage Month](https://en.wikipedia.org/wiki/Jewish_American_Heritage_Month)
@@ -56,7 +56,7 @@ Scotland Church of Scotland
 - July 11 [Olga of Kiev](https://en.wikipedia.org/wiki/Olga_of_Kiev) Feast Day
 - July 14 Bastille Day
 - July 15 [St. Vladimir the Great](https://en.wikipedia.org/wiki/Vladimir_the_Great) Feast Day
-- July 18 St Arnulf of Metz Feast Day
+- July 18 [St Arnulf of Metz](https://en.wikipedia.org/wiki/Arnulf_of_Metz) Feast Day
 - July 29 [Saint Olaf](https://en.wikipedia.org/wiki/Saint_Olaf) Feast Day
 - July 30 [Friendship Day](https://en.wikipedia.org/wiki/Friendship_Day)
 
