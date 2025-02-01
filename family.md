@@ -52,6 +52,7 @@ Scotland Church of Scotland
 -   September 28:  [National Good Neighbor Day](https://en.wikipedia.org/wiki/National_Good_Neighbor_Day "National Good Neighbor Day")
 
 **October** Octoberfest and German Heritage Month
+* October 26 [Alfred the Great](https://en.wikipedia.org/wiki/Alfred_the_Great) Feast Day
 * November 30 St. Andrews Day Patron Saint of Scotland
 * December 17 [St Begga](https://en.wikipedia.org/wiki/Begga) Feast Day
 * December 25 Christmas
