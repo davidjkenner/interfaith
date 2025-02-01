@@ -72,6 +72,7 @@ Scotland Church of Scotland
 
 -   1st Sunday after Labor Day:  [National Grandparents' Day](https://en.wikipedia.org/wiki/National_Grandparents%27_Day "National Grandparents' Day")
 -   4th Monday in September:  [Family Day](https://en.wikipedia.org/wiki/Family_Day "Family Day")
+* September 8 [St. Adèle Capet](https://www.wikitree.com/wiki/Capet-24) [Feast day](https://familypedia.fandom.com/wiki/Ad%C3%A8le_of_France_(1009-1079))
 * September 12 Defenders Day
 * September 17:  [Constitution Day and Citizenship Day](https://en.wikipedia.org/wiki/Constitution_Day_and_Citizenship_Day "Constitution Day and Citizenship Day") 
 - September 20 [World Children's Day](https://en.wikipedia.org/wiki/World_Children%27s_Day)
