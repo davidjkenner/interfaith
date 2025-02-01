@@ -52,6 +52,7 @@ Scotland Church of Scotland
 - July 8 King Edward of Wessex Feast Day
 - July 14 Bastille Day
 - July 18 St Arnulf of Metz Feast Day
+- July 29 [Saint Olaf](https://en.wikipedia.org/wiki/Saint_Olaf) Feast Day
 - July 30 [Friendship Day](https://en.wikipedia.org/wiki/Friendship_Day)
 
 
