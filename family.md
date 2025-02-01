@@ -52,6 +52,7 @@ Scotland Church of Scotland
 - July 4: [Independence Day](https://en.wikipedia.org/wiki/Independence_Day_(United_States) "Independence Day (United States)")
 - July 8 King Edward of Wessex Feast Day
 - July 14 Bastille Day
+- July 15 [St. Vladimir the Great](https://en.wikipedia.org/wiki/Vladimir_the_Great) Feast Day
 - July 18 St Arnulf of Metz Feast Day
 - July 29 [Saint Olaf](https://en.wikipedia.org/wiki/Saint_Olaf) Feast Day
 - July 30 [Friendship Day](https://en.wikipedia.org/wiki/Friendship_Day)
