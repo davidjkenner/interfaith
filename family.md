@@ -23,7 +23,7 @@ Scotland Church of Scotland
 * March 1 St. David's Day Patron Saint of Wales
 * March 8 [International Women's Day](https://en.wikipedia.org/wiki/International_Women%27s_Day)
 * March 8 [St. Adela of Normandy](https://en.wikipedia.org/wiki/Adela_of_Normandy) Feast Day
-* March 14 Saint Matilda of Ringelheim
+* March 14 [St. Matilda of Ringelheim](https://en.wikipedia.org/wiki/Matilda_of_Ringelheim) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=307)
 * March 17 St. Patrick Patron Saint of Ireland
 * March 20 [International Francophonie Day](https://en.wikipedia.org/wiki/International_Francophonie_Day)
 * March 25 Maryland Day
@@ -54,7 +54,7 @@ Scotland Church of Scotland
 
 - July 1 [Canada Day](https://en.wikipedia.org/wiki/Canada_Day)
 - July 4: [Independence Day](https://en.wikipedia.org/wiki/Independence_Day_(United_States) "Independence Day (United States)")
-- July 8 King Edward of Wessex Feast Day
+- July 8 [St. King Edward of Wessex](https://en.wikipedia.org/wiki/Edward_the_Confessor) [Feast Day](https://highanglicanhaligonian.home.blog/2020/10/13/the-minor-feast-of-edward-the-confessor-king/)
 - July 11 [Olga of Kiev](https://en.wikipedia.org/wiki/Olga_of_Kiev) Feast Day
 - July 14 Bastille Day
 - July 15 [St. Vladimir the Great](https://en.wikipedia.org/wiki/Vladimir_the_Great) Feast Day
@@ -81,7 +81,7 @@ Scotland Church of Scotland
 
   
 * November 2 Day of the Dead
-* November 16 Margaret of Scotland Feast Day
+* November 16 [Margaret of Scotland](https://en.wikipedia.org/wiki/Saint_Margaret_of_Scotland) Feast Day
 * November 30 St. Andrews Day Patron Saint of Scotland
 
 -   2nd Saturday Wreaths Across America
