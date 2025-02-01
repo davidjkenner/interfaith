@@ -1,5 +1,8 @@
-Apostle's Creed: Old Catholic, Lutheran, Anglican, Methodist, Heugonots, Dutch Reformed
+[Apostles Creed](https://en.wikipedia.org/wiki/Apostles%27_Creed): Old Catholic, Lutheran, Anglican, Methodist, Heugonots, Dutch Reformed
 
+ [Preamble to the National Council of Churches of Christ](https://en.wikipedia.org/wiki/National_Council_of_Churches) Friends General Conference, Disciples of Christ, American Baptist
+
+ Southern Baptist, International Bible Students Association
 
 Belguim [Old Catholic](https://en.wikipedia.org/wiki/Old_Catholic_Church)
 France Huegnots
