@@ -37,6 +37,7 @@ Scotland Church of Scotland
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
 * June 14:  [Flag Day](https://en.wikipedia.org/wiki/Flag_Day_in_the_United_States "Flag Day in the United States")
+* June 15 Magna Charter
 * June 20 –  [West Virginia Day](https://en.wikipedia.org/wiki/West_Virginia_Day "West Virginia Day")
 
 - July 1 [Canada Day](https://en.wikipedia.org/wiki/Canada_Day)
