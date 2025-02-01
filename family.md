@@ -39,6 +39,9 @@ Scotland Church of Scotland
 * May 4 Feast of the English Martyrs
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
+* May 24 [St. David of Scotland](https://en.wikipedia.org/wiki/David_I_of_Scotland) Feast Day
+
+
 * June 14:  [Flag Day](https://en.wikipedia.org/wiki/Flag_Day_in_the_United_States "Flag Day in the United States")
 * June 15 Magna Charter
 * June 20 –  [West Virginia Day](https://en.wikipedia.org/wiki/West_Virginia_Day "West Virginia Day")
