@@ -80,6 +80,7 @@ Scotland Church of Scotland
 -   September 28 St. Wenceslas Day
 
 **October** Octoberfest and German Heritage Month
+* October 4 [St. Anne of Novgorod](https://famouskin.com/famous-kin-menu.php?name=4168+anne+of+kiev), Grand Princess of Kiev Feast Day
 * October 6 German-American Day
 * October 26 [Alfred the Great](https://en.wikipedia.org/wiki/Alfred_the_Great) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=1262)
 
