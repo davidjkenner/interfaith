@@ -58,14 +58,24 @@ Scotland Church of Scotland
 * September 17:  [Constitution Day and Citizenship Day](https://en.wikipedia.org/wiki/Constitution_Day_and_Citizenship_Day "Constitution Day and Citizenship Day") 
 - September 20 [World Children's Day](https://en.wikipedia.org/wiki/World_Children%27s_Day)
 -   September 28:  [National Good Neighbor Day](https://en.wikipedia.org/wiki/National_Good_Neighbor_Day "National Good Neighbor Day")
+-   September 28 St. Wenceslas Day
 
 **October** Octoberfest and German Heritage Month
+* October 6 German-American Day
 * October 26 [Alfred the Great](https://en.wikipedia.org/wiki/Alfred_the_Great) Feast Day
+
+  
+* November 2 Day of the Dead
+* November 16 Margaret of Scotland Feast Day
 * November 30 St. Andrews Day Patron Saint of Scotland
+
+-   2nd Saturday Wreaths Across America
+* December 6 St. Nicholas Day
 * December 17 [St Begga](https://en.wikipedia.org/wiki/Begga) Feast Day
 * December 25 Christmas
 * December 31 New Years Eve
 * January 1 New Years Day
+* January 10 Kenner Family Heritage Day
 * January 19 [Lee Family Heritage Day](https://en.wikipedia.org/wiki/Robert_E._Lee_Day)
 * 3rd Sunday in January:  [National Sanctity of Human Life Day](https://en.wikipedia.org/wiki/National_Sanctity_of_Human_Life_Day "National Sanctity of Human Life Day")
 * 
