@@ -1,3 +1,5 @@
+7 Sacraments 7 Ordinances
+
 [Apostles Creed](https://en.wikipedia.org/wiki/Apostles%27_Creed): [Old Catholic](https://en.wikipedia.org/wiki/Old_Catholic_Church), Lutheran, Anglican, Methodist, Heugonots, Dutch Reformed, Mennonites
 
  [Preamble to the National Council of Churches of Christ](https://en.wikipedia.org/wiki/National_Council_of_Churches) Friends General Conference, Disciples of Christ, American Baptist
