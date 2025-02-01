@@ -52,7 +52,10 @@ Scotland Church of Scotland
 - July 14 Bastille Day
 - July 18 St Arnulf of Metz Feast Day
 - July 30 [Friendship Day](https://en.wikipedia.org/wiki/Friendship_Day)
+
+
 - August 1 [National Day](https://en.wikipedia.org/wiki/Swiss_National_Day "Swiss National Day")
+- August 15 [St. Stephen I of Hungary](https://en.wikipedia.org/wiki/Stephen_I_of_Hungary) Feast Day
 - August 25 St. Louis Capet Feast Day
 
 -   1st Sunday after Labor Day:  [National Grandparents' Day](https://en.wikipedia.org/wiki/National_Grandparents%27_Day "National Grandparents' Day")
