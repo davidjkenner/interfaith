@@ -22,6 +22,7 @@ Scotland Church of Scotland
 
 * March 1 St. David's Day Patron Saint of Wales
 * March 8 [International Women's Day](https://en.wikipedia.org/wiki/International_Women%27s_Day)
+* March 8 [St. Adela of Normandy](https://en.wikipedia.org/wiki/Adela_of_Normandy) Feast Day
 * March 14 Saint Matilda of Ringelheim
 * March 17 St. Patrick Patron Saint of Ireland
 * March 20 [International Francophonie Day](https://en.wikipedia.org/wiki/International_Francophonie_Day)
@@ -42,6 +43,7 @@ Scotland Church of Scotland
 * May 7 [St. Gisela of Hungary](https://en.wikipedia.org/wiki/Gisela_of_Hungary) Feast Day
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
+* May 18 [St. Elgiva of Shaftesbury](https://en.wikipedia.org/wiki/%C3%86lfgifu_of_Shaftesbury) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=3090)
 * May 24 [St. David of Scotland](https://en.wikipedia.org/wiki/David_I_of_Scotland) Feast Day
 * May 30 [St. Ferdinand III](https://en.wikipedia.org/wiki/Ferdinand_III_of_Castile) of Castile Feast Day
 
