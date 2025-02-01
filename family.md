@@ -16,5 +16,11 @@ Scotland Church of Scotland
 * February 21 [Pepin of Landen](https://en.wikipedia.org/wiki/Pepin_of_Landen) Feast Day
 * March 1 St. David's Day Patron Saint of Wales
 * March 17 St. Patrick Patron Saint of Ireland
+* March 25 Maryland Day
 * April 23 St. George Patron Saint of England
+* May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
+* July 4 Indepedence Day
+* September 12 Defenders Day
 * November 30 St. Andrews Day Patron Saint of Scotland
+* December 17 [St Begga](https://en.wikipedia.org/wiki/Begga) Feast Day
+* December 25 Christmas
