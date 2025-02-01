@@ -101,6 +101,7 @@ Scotland Church of Scotland
 * December 31 New Years Eve
 * January 1 New Years Day
 * January 10 Kenner Family Heritage Day
+* January 13 [Quaker Heritage Day](https://en.wikipedia.org/wiki/George_Fox)
 * January 19 [Lee Family Heritage Day](https://en.wikipedia.org/wiki/Robert_E._Lee_Day)
 * 3rd Sunday in January:  [National Sanctity of Human Life Day](https://en.wikipedia.org/wiki/National_Sanctity_of_Human_Life_Day "National Sanctity of Human Life Day")
 * 
