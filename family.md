@@ -93,6 +93,7 @@ Scotland Church of Scotland
 -   2nd Saturday Wreaths Across America
 * December 6 St. Nicholas Day
 * December 17 [St Begga](https://en.wikipedia.org/wiki/Begga) Feast Day
+* December 24 [St. Adela, Princess of Austrasia](https://famouskin.com/family-group.php?name=56323+henry+a+wallace&ahnum=29189286215811) [Feast Day](https://www.genealogieonline.nl/en/stamboom-petra-limburg/P6491.php)
 * December 25 Christmas
 * December 31 New Years Eve
 * January 1 New Years Day
