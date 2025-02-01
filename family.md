@@ -47,6 +47,7 @@ Scotland Church of Scotland
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
 * May 18 [St. Elgiva of Shaftesbury](https://en.wikipedia.org/wiki/%C3%86lfgifu_of_Shaftesbury) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=3090)
 * May 24 [St. David of Scotland](https://en.wikipedia.org/wiki/David_I_of_Scotland) Feast Day
+* May 24 [Methodist Heritage Day](https://en.wikipedia.org/wiki/Aldersgate_Day)
 * May 30 [St. Ferdinand III](https://en.wikipedia.org/wiki/Ferdinand_III_of_Castile) of Castile Feast Day
 
 
@@ -54,6 +55,7 @@ Scotland Church of Scotland
 * June 14:  [Flag Day](https://en.wikipedia.org/wiki/Flag_Day_in_the_United_States "Flag Day in the United States")
 * June 15 Magna Charter
 * June 20 –  [West Virginia Day](https://en.wikipedia.org/wiki/West_Virginia_Day "West Virginia Day")
+* June 25 Lutheran Heritage Day
 
 - July 1 [Canada Day](https://en.wikipedia.org/wiki/Canada_Day)
 - July 4: [Independence Day](https://en.wikipedia.org/wiki/Independence_Day_(United_States) "Independence Day (United States)")
