@@ -51,6 +51,7 @@ Scotland Church of Scotland
 - July 1 [Canada Day](https://en.wikipedia.org/wiki/Canada_Day)
 - July 4: [Independence Day](https://en.wikipedia.org/wiki/Independence_Day_(United_States) "Independence Day (United States)")
 - July 8 King Edward of Wessex Feast Day
+- July 11 [Olga of Kiev](https://en.wikipedia.org/wiki/Olga_of_Kiev) Feast Day
 - July 14 Bastille Day
 - July 15 [St. Vladimir the Great](https://en.wikipedia.org/wiki/Vladimir_the_Great) Feast Day
 - July 18 St Arnulf of Metz Feast Day
