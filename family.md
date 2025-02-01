@@ -50,6 +50,7 @@ Scotland Church of Scotland
 * May 30 [St. Ferdinand III](https://en.wikipedia.org/wiki/Ferdinand_III_of_Castile) of Castile Feast Day
 
 
+* June 3 [St. Clotilde](https://en.wikipedia.org/wiki/Clotilde) Feast Day
 * June 14:  [Flag Day](https://en.wikipedia.org/wiki/Flag_Day_in_the_United_States "Flag Day in the United States")
 * June 15 Magna Charter
 * June 20 –  [West Virginia Day](https://en.wikipedia.org/wiki/West_Virginia_Day "West Virginia Day")
