@@ -29,6 +29,7 @@ Scotland Church of Scotland
 
  **April** [Confederate History Month](https://en.wikipedia.org/wiki/Confederate_History_Month)
 * April 6:  [National Tartan Day](https://en.wikipedia.org/wiki/National_Tartan_Day "National Tartan Day")
+* April 22 Oklahoma Day
 * April 23 St. George Patron Saint of England
 * April 24 St. Doda Feast Day
 * April 26  [Confederate Memorial Day](https://en.wikipedia.org/wiki/Confederate_Memorial_Day)
@@ -61,7 +62,7 @@ Scotland Church of Scotland
 
 - August 1 [National Day](https://en.wikipedia.org/wiki/Swiss_National_Day "Swiss National Day")
 - August 15 [St. Stephen I of Hungary](https://en.wikipedia.org/wiki/Stephen_I_of_Hungary) Feast Day
-- August 25 St. Louis Capet Feast Day
+- August 25 [St. Louis Capet](https://en.wikipedia.org/wiki/Louis_IX_of_France) Feast Day
 
 -   1st Sunday after Labor Day:  [National Grandparents' Day](https://en.wikipedia.org/wiki/National_Grandparents%27_Day "National Grandparents' Day")
 -   4th Monday in September:  [Family Day](https://en.wikipedia.org/wiki/Family_Day "Family Day")
