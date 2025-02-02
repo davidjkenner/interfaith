@@ -4,7 +4,9 @@
 
  [Preamble to the National Council of Churches of Christ](https://en.wikipedia.org/wiki/National_Council_of_Churches) Friends General Conference, Disciples of Christ, American Baptist
 
-Methodist #888: Southern Baptist, International Bible Students Association, Dunkers
+Methodist #888: Southern Baptist, International Bible Students Association, Dunkers, Rev. EHC Kenner statement of faith
+
+https://www.wikitree.com/wiki/Category:Saints
 
 Belguim [Old Catholic](https://en.wikipedia.org/wiki/Old_Catholic_Church)
 France Huegnots
