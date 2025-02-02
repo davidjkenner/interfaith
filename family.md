@@ -16,7 +16,8 @@ Scotland Church of Scotland
 
 * January 28 [Charlemagne](https://en.wikipedia.org/wiki/Charlemagne) [Feast Day](https://www.traditioninaction.org/History/A02CharlemagneTribute.html)
 * February 10 [St. Ingegerd Olofsdotter](https://en.wikipedia.org/wiki/Ingegerd_Olofsdotter#Sainthood) Feast Day
-* February 14 [Valentine's Day](https://en.wikipedia.org/wiki/Valentine%27s_Day "Valentine's Day"), 
+* February 14 [Valentine's Day](https://en.wikipedia.org/wiki/Valentine%27s_Day "Valentine's Day"),
+* February 20 [Yaroslav the Wise](https://en.wikipedia.org/wiki/Yaroslav_the_Wise#Veneration) Feast Day
 * February 21 [Pepin of Landen](https://en.wikipedia.org/wiki/Pepin_of_Landen) Feast Day
 * February 22: [Washington's Birthday](https://en.wikipedia.org/wiki/Presidents%27_Day)
 
