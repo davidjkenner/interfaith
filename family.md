@@ -22,10 +22,14 @@ Scotland Church of Scotland
 * February 20 [Yaroslav the Wise](https://en.wikipedia.org/wiki/Yaroslav_the_Wise#Veneration) Feast Day
 * February 21 [Pepin of Landen](https://en.wikipedia.org/wiki/Pepin_of_Landen) Feast Day
 * February 22: [Washington's Birthday](https://en.wikipedia.org/wiki/Presidents%27_Day)
+* 2 February and 8 March [Shrove Monday](https://en.wikipedia.org/wiki/Shrove_Monday)
+- 4 February and 10 March [Ash Wednesday](https://en.wikipedia.org/wiki/Ash_Wednesday "Ash Wednesday")
 
  **March:**  [Irish-American Heritage Month](https://en.wikipedia.org/wiki/Irish-American_Heritage_Month "Irish-American Heritage Month")[[35]](https://en.wikipedia.org/wiki/List_of_observances_in_the_United_States_by_presidential_proclamation#cite_note-35)
 
-* March 1 St. David's Day Patron Saint of Wales
+ **March:**  [Irish-American Heritage Month](https://en.wikipedia.org/wiki/Irish-American_Heritage_Month "Irish-American Heritage Month")[[35]](https://en.wikipedia.org/wiki/List_of_observances_in_the_United_States_by_presidential_proclamation#cite_note-35)
+**Women's History Month**
+- March 1 [St. David's Day](https://en.wikipedia.org/wiki/Proposed_St_David%27s_Day_bank_holiday)
 * March 8 [International Women's Day](https://en.wikipedia.org/wiki/International_Women%27s_Day)
 * March 8 [St. Adela of Normandy](https://en.wikipedia.org/wiki/Adela_of_Normandy) Feast Day
 * March 14 [St. Matilda of Ringelheim](https://en.wikipedia.org/wiki/Matilda_of_Ringelheim) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=307)
@@ -102,7 +106,9 @@ Scotland Church of Scotland
 * December 24 [St. Adela, Princess of Austrasia](https://famouskin.com/family-group.php?name=56323+henry+a+wallace&ahnum=29189286215811) [Feast Day](https://www.genealogieonline.nl/en/stamboom-petra-limburg/P6491.php)
 * December 25 Christmas
 * December 31 New Years Eve
-* January 1 New Years Day
+
+  
+* January 1  [New Year's Day](https://en.wikipedia.org/wiki/New_Year%27s_Day)
 * January 10 Kenner Family Heritage Day
 * January 13 [Quaker Heritage Day](https://en.wikipedia.org/wiki/George_Fox)
 * January 19 [Lee Family Heritage Day](https://en.wikipedia.org/wiki/Robert_E._Lee_Day)
