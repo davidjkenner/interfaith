@@ -48,9 +48,12 @@ Scotland Church of Scotland
  **April** [Confederate History Month](https://en.wikipedia.org/wiki/Confederate_History_Month)
 * April 6:  [National Tartan Day](https://en.wikipedia.org/wiki/National_Tartan_Day "National Tartan Day") Celebrate Presbyterian Heritage Day
 * April 22 Oklahoma Day
-* April 23 St. George Patron Saint of England. Celebrate Episcopal Heritage Day 
+-  April 23 [Saint George's Day](https://en.wikipedia.org/wiki/Saint_George%27s_Day) . Celebrate Episcopal Heritage Day 
 * April 24 [St. Doda](https://en.wikipedia.org/wiki/Doda_of_Reims) Feast Day
 * April 26  [Confederate Memorial Day](https://en.wikipedia.org/wiki/Confederate_Memorial_Day)
+-   last week of April:  [National Volunteer Week](https://en.wikipedia.org/wiki/National_Volunteer_Week)
+- Apr 30 & Jun 3 [Ascension of Jesus](https://en.wikipedia.org/wiki/Feast_of_the_Ascension)
+
 
 **May:**  [Jewish American Heritage Month](https://en.wikipedia.org/wiki/Jewish_American_Heritage_Month)
 - 1st Thursday in May:  [National Day of Prayer](https://en.wikipedia.org/wiki/National_Day_of_Prayer "National Day of Prayer")
@@ -59,16 +62,19 @@ Scotland Church of Scotland
 * May 4 Feast of the English Martyrs
 * May 7 [St. Gisela of Hungary](https://en.wikipedia.org/wiki/Gisela_of_Hungary) Feast Day
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
+- May 10 & Jun 13 [WhitSunday](https://en.wikipedia.org/wiki/Whitsun)
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
 * May 18 [St. Elgiva of Shaftesbury](https://en.wikipedia.org/wiki/%C3%86lfgifu_of_Shaftesbury) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=3090)
 * May 24 [St. David of Scotland](https://en.wikipedia.org/wiki/David_I_of_Scotland) Feast Day
 * May 24 [Methodist Heritage Day](https://en.wikipedia.org/wiki/Aldersgate_Day)
 * May 30 [St. Ferdinand III](https://en.wikipedia.org/wiki/Ferdinand_III_of_Castile) of Castile Feast Day
 
-
+-   1st Monday in June:  [National Child's Day](https://en.wikipedia.org/w/index.php?title=National_Child%27s_Day&action=edit&redlink=1 "National Child's Day (page does not exist)")
+- June 1 [Parents' Day](https://en.wikipedia.org/wiki/Parents%27_Day)
 * June 3 [St. Clotilde](https://en.wikipedia.org/wiki/Clotilde) Feast Day
 * June 14:  [Flag Day](https://en.wikipedia.org/wiki/Flag_Day_in_the_United_States "Flag Day in the United States")
 * June 15 Magna Charter
+-   June 19:  [Juneteenth](https://en.wikipedia.org/wiki/Juneteenth "Juneteenth")
 * June 20 –  [West Virginia Day](https://en.wikipedia.org/wiki/West_Virginia_Day "West Virginia Day")
 * June 25 Lutheran Heritage Day
 
