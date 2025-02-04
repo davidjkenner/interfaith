@@ -17,13 +17,16 @@ Scotland Church of Scotland
 
 
 * January 28 [Charlemagne](https://en.wikipedia.org/wiki/Charlemagne) [Feast Day](https://www.traditioninaction.org/History/A02CharlemagneTribute.html)
+- 2 February and 8 March [Shrove Monday](https://en.wikipedia.org/wiki/Shrove_Monday)
+-  February 3 – March 9 (floating Tuesday using  [Computus](https://en.wikipedia.org/wiki/Computus "Computus")) –  [Mardi Gras](https://en.wikipedia.org/wiki/Mardi_Gras "Mardi Gras") [Shrove Tuesday](https://en.wikipedia.org/wiki/Shrove_Tuesday)
+- 4 February and 10 March [Ash Wednesday](https://en.wikipedia.org/wiki/Ash_Wednesday "Ash Wednesday")
 * February 10 [St. Ingegerd Olofsdotter](https://en.wikipedia.org/wiki/Ingegerd_Olofsdotter#Sainthood) Feast Day
 * February 14 [Valentine's Day](https://en.wikipedia.org/wiki/Valentine%27s_Day "Valentine's Day"),
+- February 15–21 (3rd Monday) – [Presidents' Day](https://en.wikipedia.org/wiki/Presidents%27_Day "Presidents' Day")
 * February 20 [Yaroslav the Wise](https://en.wikipedia.org/wiki/Yaroslav_the_Wise#Veneration) Feast Day
 * February 21 [Pepin of Landen](https://en.wikipedia.org/wiki/Pepin_of_Landen) Feast Day
 * February 22: [Washington's Birthday](https://en.wikipedia.org/wiki/Presidents%27_Day)
-* 2 February and 8 March [Shrove Monday](https://en.wikipedia.org/wiki/Shrove_Monday)
-- 4 February and 10 March [Ash Wednesday](https://en.wikipedia.org/wiki/Ash_Wednesday "Ash Wednesday")
+
 
  **March:**  [Irish-American Heritage Month](https://en.wikipedia.org/wiki/Irish-American_Heritage_Month "Irish-American Heritage Month")[[35]](https://en.wikipedia.org/wiki/List_of_observances_in_the_United_States_by_presidential_proclamation#cite_note-35)
 
@@ -34,13 +37,18 @@ Scotland Church of Scotland
 * March 8 [St. Adela of Normandy](https://en.wikipedia.org/wiki/Adela_of_Normandy) Feast Day
 * March 14 [St. Matilda of Ringelheim](https://en.wikipedia.org/wiki/Matilda_of_Ringelheim) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=307)
 * March 17 St. Patrick Patron Saint of Ireland
+-   March 19 – April 22 (floating Thursday using  [Computus](https://en.wikipedia.org/wiki/Computus "Computus")) –  [Holy Thursday](https://en.wikipedia.org/wiki/Holy_Thursday "Holy Thursday")
+-   March 20 – April 23 (floating Friday using  [Computus](https://en.wikipedia.org/wiki/Computus "Computus")) –  [Good Friday](https://en.wikipedia.org/wiki/Good_Friday "Good Friday")
+-   March 22 – April 25 (floating Sunday using  [Computus](https://en.wikipedia.org/wiki/Computus "Computus")) –  [Easter](https://en.wikipedia.org/wiki/Easter "Easter")
+-   March 23 – April 26 (floating Monday using  [Computus](https://en.wikipedia.org/wiki/Computus "Computus")) –  [Easter Monday](https://en.wikipedia.org/wiki/Easter_Monday "Easter Monday")
 * March 20 [International Francophonie Day](https://en.wikipedia.org/wiki/International_Francophonie_Day)
 * March 25 Maryland Day
 
+
  **April** [Confederate History Month](https://en.wikipedia.org/wiki/Confederate_History_Month)
-* April 6:  [National Tartan Day](https://en.wikipedia.org/wiki/National_Tartan_Day "National Tartan Day")
+* April 6:  [National Tartan Day](https://en.wikipedia.org/wiki/National_Tartan_Day "National Tartan Day") Celebrate Presbyterian Heritage Day
 * April 22 Oklahoma Day
-* April 23 St. George Patron Saint of England
+* April 23 St. George Patron Saint of England. Celebrate Episcopal Heritage Day 
 * April 24 [St. Doda](https://en.wikipedia.org/wiki/Doda_of_Reims) Feast Day
 * April 26  [Confederate Memorial Day](https://en.wikipedia.org/wiki/Confederate_Memorial_Day)
 
