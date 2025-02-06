@@ -112,7 +112,8 @@ Scotland Church of Scotland
   
 * November 2 Day of the Dead
 * November 16 [Margaret of Scotland](https://en.wikipedia.org/wiki/Saint_Margaret_of_Scotland) Feast Day
-* Thanksgiving George Soule
+* Thanksgiving George Soule. Congregationalist Heritage Day
+* November 23 [Saint Clement's Day](https://en.wikipedia.org/wiki/Saint_Clement%27s_Day)
 * November 27 [St. Clovis](https://en.wikipedia.org/wiki/Clovis_I) Feast Day
 * November 30 St. Andrews Day Patron Saint of Scotland
 
