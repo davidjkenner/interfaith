@@ -78,6 +78,7 @@ Scotland Church of Scotland
 -   June 19:  [Juneteenth](https://en.wikipedia.org/wiki/Juneteenth "Juneteenth")
 * June 20 –  [West Virginia Day](https://en.wikipedia.org/wiki/West_Virginia_Day "West Virginia Day")
 * June 25 Lutheran Heritage Day
+* June 28 [St. Irenaeus](https://en.wikipedia.org/wiki/Irenaeus)
 
 - July 1 [Canada Day](https://en.wikipedia.org/wiki/Canada_Day)
 - July 4: [Independence Day](https://en.wikipedia.org/wiki/Independence_Day_(United_States) "Independence Day (United States)")
