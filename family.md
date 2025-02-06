@@ -65,6 +65,7 @@ Scotland Church of Scotland
 - May 10 & Jun 13 [WhitSunday](https://en.wikipedia.org/wiki/Whitsun)
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
 * May 18 [St. Elgiva of Shaftesbury](https://en.wikipedia.org/wiki/%C3%86lfgifu_of_Shaftesbury) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=3090)
+* May 21 [Constantine the Great](https://en.wikipedia.org/wiki/Constantine_the_Great)
 * May 24 [St. David of Scotland](https://en.wikipedia.org/wiki/David_I_of_Scotland) Feast Day
 * May 24 [Methodist Heritage Day](https://en.wikipedia.org/wiki/Aldersgate_Day)
 * May 30 [St. Ferdinand III](https://en.wikipedia.org/wiki/Ferdinand_III_of_Castile) of Castile Feast Day
