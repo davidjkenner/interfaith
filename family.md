@@ -65,7 +65,7 @@ Scotland Church of Scotland
 -   last Monday in May:  [Memorial Day](https://en.wikipedia.org/wiki/Memorial_Day "Memorial Day")
 -   May 1:  [Loyalty Day](https://en.wikipedia.org/wiki/Loyalty_Day "Loyalty Day")
 * May 2 [National Youth Day](https://en.wikipedia.org/wiki/National_Youth_Day "National Youth Day")
-* May 4 Feast of the English Martyrs
+* May 4 Feast of [English](https://en.wikipedia.org/wiki/England "England") Saints and Martyrs of the [Reformation](https://en.wikipedia.org/wiki/Reformation "Reformation") Era
 * May 7 [St. Gisela of Hungary](https://en.wikipedia.org/wiki/Gisela_of_Hungary) Feast Day
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
 - May 10 & Jun 13 [WhitSunday](https://en.wikipedia.org/wiki/Whitsun)
@@ -97,7 +97,7 @@ Scotland Church of Scotland
 - July 4: [Independence Day](https://en.wikipedia.org/wiki/Independence_Day_(United_States) "Independence Day (United States)")
 - July 8 [St. King Edward of Wessex](https://en.wikipedia.org/wiki/Edward_the_Confessor) [Feast Day](https://highanglicanhaligonian.home.blog/2020/10/13/the-minor-feast-of-edward-the-confessor-king/)
 - July 11 [Olga of Kiev](https://en.wikipedia.org/wiki/Olga_of_Kiev) Feast Day
-- July 14 [Bastille Day](https://en.wikipedia.org/wiki/Bastille_Day)
+- July 14 [Bastille Day](https://en.wikipedia.org/wiki/Bastille_Day) Huegonot Heritage Day
 - July 15 [St. Vladimir the Great](https://en.wikipedia.org/wiki/Vladimir_the_Great) Feast Day
 - July 18 [St Arnulf of Metz](https://en.wikipedia.org/wiki/Arnulf_of_Metz) Feast Day
 -  July 24 [Pioneer Day](https://en.wikipedia.org/wiki/Pioneer_Day), 
