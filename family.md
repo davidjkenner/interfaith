@@ -8,6 +8,8 @@ Methodist #888: Southern Baptist, International Bible Students Association, Dunk
 
 7 Sacraments 7 Ordinances
 
+Apostles Creed is used for Christening, First Communions, Catechism, Rosary
+
 https://www.wikitree.com/wiki/Category:Saints
 
 Belguim [Old Catholic](https://en.wikipedia.org/wiki/Old_Catholic_Church)
