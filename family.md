@@ -125,24 +125,35 @@ Scotland Church of Scotland
 
 **October** Octoberfest and German Heritage Month
 -   1st Monday in October:  [Child Health Day](https://en.wikipedia.org/wiki/Child_Health_Day "Child Health Day")
+- October 1 [International Day of Older Persons](https://en.wikipedia.org/wiki/International_Day_of_Older_Persons)
+- October 3 [German Unity Day](https://en.wikipedia.org/wiki/German_Unity_Day)
 * October 4 [St. Anne of Novgorod](https://famouskin.com/famous-kin-menu.php?name=4168+anne+of+kiev), Grand Princess of Kiev Feast Day
-* October 6 German-American Day
+-   October 6:  [German-American Day](https://en.wikipedia.org/wiki/German-American_Day "German-American Day")
+-   2nd Monday in October:  **[Columbus Day](https://en.wikipedia.org/wiki/Columbus_Day "Columbus Day")
 * October 26 [Alfred the Great](https://en.wikipedia.org/wiki/Alfred_the_Great) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=1262)
+- October 30 [Reformation Day](https://en.wikipedia.org/wiki/Reformation_Day "Reformation Day")
+- October 31  [Halloween](https://en.wikipedia.org/wiki/Halloween "Halloween"), 
 
-  
+- 1st Monday in November [Recreation Day](https://en.wikipedia.org/wiki/Recreation_Day_holiday)
+  -   4th Thursday in November:  [Thanksgiving Day](https://en.wikipedia.org/wiki/Thanksgiving_Day "Thanksgiving Day") Congregationalist Heritage Day
+-   November 1 –  [All Saints' Day](https://en.wikipedia.org/wiki/All_Saints%27_Day "All Saints' Day")
 * November 2 Day of the Dead
+-   November 11:  **[Veterans Day](https://en.wikipedia.org/wiki/Veterans_Day_(United_States) 
+-   November 15:  [National Philanthropy Day](https://en.wikipedia.org/wiki/National_Philanthropy_Day "National Philanthropy Day")
+- November 16 [International Students' Day](https://en.wikipedia.org/wiki/International_Students%27_Day)
 * November 16 [Margaret of Scotland](https://en.wikipedia.org/wiki/Saint_Margaret_of_Scotland) Feast Day
-* Thanksgiving George Soule. Congregationalist Heritage Day
 * November 23 [Saint Clement's Day](https://en.wikipedia.org/wiki/Saint_Clement%27s_Day)
 * November 27 [St. Clovis](https://en.wikipedia.org/wiki/Clovis_I) Feast Day
-* November 30 St. Andrews Day Patron Saint of Scotland
+- November 30 [St. Andrew's Day](https://en.wikipedia.org/wiki/St._Andrew%27s_Day "St. Andrew's Day")
 
 -   2nd Saturday Wreaths Across America
-* December 6 St. Nicholas Day
+- December 6 [Saint Nicholas Day](https://en.wikipedia.org/wiki/Saint_Nicholas_Day "Saint Nicholas Day")
 * December 17 [St Begga](https://en.wikipedia.org/wiki/Begga) Feast Day
 * December 24 [St. Adela, Princess of Austrasia](https://famouskin.com/family-group.php?name=56323+henry+a+wallace&ahnum=29189286215811) [Feast Day](https://www.genealogieonline.nl/en/stamboom-petra-limburg/P6491.php)
-* December 25 Christmas
-* December 31 New Years Eve
+-   December 24 –  [Christmas Eve](https://en.wikipedia.org/wiki/Christmas_Eve "Christmas Eve")
+- December 25: [Christmas Day](https://en.wikipedia.org/wiki/Christmas)
+- December 26: [Boxing Day](https://en.wikipedia.org/wiki/Boxing_Day)
+- December 31  [New Year's Eve](https://en.wikipedia.org/wiki/New_Year%27s_Eve "New Year's Eve"), 
 
   
 * January 1  [New Year's Day](https://en.wikipedia.org/wiki/New_Year%27s_Day)
