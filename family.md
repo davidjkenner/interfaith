@@ -163,3 +163,7 @@ Scotland Church of Scotland
 * January 19 [Lee Family Heritage Day](https://en.wikipedia.org/wiki/Robert_E._Lee_Day)
 * 3rd Sunday in January:  [National Sanctity of Human Life Day](https://en.wikipedia.org/wiki/National_Sanctity_of_Human_Life_Day "National Sanctity of Human Life Day")
 * 
+
+--------------
+
+-   August 5 *[Oswald](https://en.wikipedia.org/wiki/Oswald_of_Northumbria "Oswald of Northumbria"), King of  [Northumbria](https://en.wikipedia.org/wiki/Northumbria "Northumbria"),  [Martyr](https://en.wikipedia.org/wiki/Martyr "Martyr"), 642
