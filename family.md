@@ -124,6 +124,7 @@ Scotland Church of Scotland
 -   September 28 St. Wenceslas Day
 
 **October** Octoberfest and German Heritage Month
+- 1st Sunday in October: [World Communion Sunday](https://en.wikipedia.org/wiki/World_Communion_Sunday)
 -   1st Monday in October:  [Child Health Day](https://en.wikipedia.org/wiki/Child_Health_Day "Child Health Day")
 - October 1 [International Day of Older Persons](https://en.wikipedia.org/wiki/International_Day_of_Older_Persons)
 - October 3 [German Unity Day](https://en.wikipedia.org/wiki/German_Unity_Day)
