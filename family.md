@@ -167,3 +167,7 @@ Scotland Church of Scotland
 --------------
 
 -   August 5 *[Oswald](https://en.wikipedia.org/wiki/Oswald_of_Northumbria "Oswald of Northumbria"), King of  [Northumbria](https://en.wikipedia.org/wiki/Northumbria "Northumbria"),  [Martyr](https://en.wikipedia.org/wiki/Martyr "Martyr"), 642
+
+
+-   Sept 14 †[Holy Cross Day](https://en.wikipedia.org/wiki/Feast_of_the_Cross "Feast of the Cross")
+
