@@ -88,3 +88,4 @@ the forgiveness of sins,
 the resurrection of the body,  
 and the life everlasting. Amen.
 
+https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
