@@ -90,6 +90,7 @@ Scotland Church of Scotland
 * June 15 Magna Charter
 -   June 19:  [Juneteenth](https://en.wikipedia.org/wiki/Juneteenth "Juneteenth")
 * June 20 –  [West Virginia Day](https://en.wikipedia.org/wiki/West_Virginia_Day "West Virginia Day")
+- Saturday between 20 and 26 June [Midsummer Day](https://en.wikipedia.org/wiki/Midsummer)
 -   June 24 ([Saint-Jean-Baptiste Day](https://en.wikipedia.org/wiki/Saint-Jean-Baptiste_Day "Saint-Jean-Baptiste Day")) Baptist Heritage Day
 * June 25 Lutheran Heritage Day
 * June 28 [St. Irenaeus](https://en.wikipedia.org/wiki/Irenaeus)
