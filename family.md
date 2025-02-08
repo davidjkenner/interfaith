@@ -65,6 +65,7 @@ Scotland Church of Scotland
 -   2nd Sunday in May:  [Mother's Day](https://en.wikipedia.org/wiki/Mother%27s_Day "Mother's Day")
 -   3rd Saturday in May:  [Armed Forces Day](https://en.wikipedia.org/wiki/Armed_Forces_Day "Armed Forces Day")
 -   last Monday in May:  [Memorial Day](https://en.wikipedia.org/wiki/Memorial_Day "Memorial Day")
+- May 1 [May Day](https://en.wikipedia.org/wiki/May_Day)
 -   May 1:  [Loyalty Day](https://en.wikipedia.org/wiki/Loyalty_Day "Loyalty Day")
 * May 2 [National Youth Day](https://en.wikipedia.org/wiki/National_Youth_Day "National Youth Day")
 * May 4 Feast of [English](https://en.wikipedia.org/wiki/England "England") Saints and Martyrs of the [Reformation](https://en.wikipedia.org/wiki/Reformation "Reformation") Era
@@ -153,6 +154,7 @@ Scotland Church of Scotland
 -   2nd Saturday Wreaths Across America
 - December 6 [Saint Nicholas Day](https://en.wikipedia.org/wiki/Saint_Nicholas_Day "Saint Nicholas Day")
 * December 17 [St Begga](https://en.wikipedia.org/wiki/Begga) Feast Day
+* December 21 [Yuletide](https://en.wikipedia.org/wiki/Yule) 
 * December 24 [St. Adela, Princess of Austrasia](https://famouskin.com/family-group.php?name=56323+henry+a+wallace&ahnum=29189286215811) [Feast Day](https://www.genealogieonline.nl/en/stamboom-petra-limburg/P6491.php)
 -   December 24 –  [Christmas Eve](https://en.wikipedia.org/wiki/Christmas_Eve "Christmas Eve")
 - December 25: [Christmas Day](https://en.wikipedia.org/wiki/Christmas)
