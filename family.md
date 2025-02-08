@@ -71,7 +71,7 @@ Scotland Church of Scotland
 * May 7 [St. Gisela of Hungary](https://en.wikipedia.org/wiki/Gisela_of_Hungary) Feast Day
 * May 8 [Itta of Metz](https://en.wikipedia.org/wiki/Itta_of_Metz) Feast Day
 - May 10 & Jun 13 [WhitSunday](https://en.wikipedia.org/wiki/Whitsun)
-- May 11 & Jun 14 [Pentecost Monday](https://en.wikipedia.org/wiki/Whit_Monday)
+- May 11 & Jun 14 [Whit Monday](https://en.wikipedia.org/wiki/Whit_Monday)
 * May 15 [International Day of Families](https://en.wikipedia.org/wiki/International_Day_of_Families "International Day of Families")
 * May 18 [St. Elgiva of Shaftesbury](https://en.wikipedia.org/wiki/%C3%86lfgifu_of_Shaftesbury) [Feast Day](https://www.catholic.org/saints/saint.php?saint_id=3090)
 * May 21 [Constantine the Great](https://en.wikipedia.org/wiki/Constantine_the_Great)
