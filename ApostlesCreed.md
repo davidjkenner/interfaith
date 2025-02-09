@@ -62,9 +62,11 @@ NOTE: The [Presbyterian Church of Aotearoa New Zealand](https://en.wikipedia.org
 The [Episcopal Church in the United States of America](https://en.wikipedia.org/wiki/Episcopal_Church_in_the_United_States_of_America "Episcopal Church in the United States of America") uses the Apostles' Creed in an interrogative form at the [Easter Vigil](https://en.wikipedia.org/wiki/Easter_Vigil "Easter Vigil") in The Renewal of Baptismal Vows.
 
 **Eucharistic rite**
+
 Since the 2002 edition, the Apostles' Creed is included in the [Roman Missal](https://en.wikipedia.org/wiki/Roman_Missal "Roman Missal") as an alternative, with the indication, "Instead of the [Niceno-Constantinopolitan Creed](https://en.wikipedia.org/wiki/Nicene_Creed "Nicene Creed"), especially during Lent and Easter time, the baptismal Symbol of the Roman Church, known as the Apostles' Creed, may be used."
 
 **Canonical hours**
+
 The Apostles' Creed is used in  [Anglican](https://en.wikipedia.org/wiki/Anglicanism "Anglicanism")  services of  [Matins](https://en.wikipedia.org/wiki/Matins "Matins")  and  [Evening Prayer (Evensong)](https://en.wikipedia.org/wiki/Evening_Prayer_(Anglican) "Evening Prayer (Anglican)"). It is invoked after the recitation or singing of the  [Canticles](https://en.wikipedia.org/wiki/Canticle "Canticle"), and is the only part of the services in which the congregation traditionally turns to face the altar, if they are seated transversely in the  [quire](https://en.wikipedia.org/wiki/Choir_(architecture) "Choir (architecture)").
 
 The Episcopal Church (United States) uses the Apostles' Creed in Morning Prayer and Evening Prayer.
@@ -72,11 +74,13 @@ The Episcopal Church (United States) uses the Apostles' Creed in Morning Prayer 
 Before the 1955 [simplification of the rubrics](https://en.wikipedia.org/wiki/General_Roman_Calendar_of_Pope_Pius_XII "General Roman Calendar of Pope Pius XII") of the [Roman Breviary](https://en.wikipedia.org/wiki/Roman_Breviary "Roman Breviary") by [Pope Pius XII](https://en.wikipedia.org/wiki/Pope_Pius_XII "Pope Pius XII"), the Apostles' Creed was recited at the beginning of [matins](https://en.wikipedia.org/wiki/Matins "Matins") and [prime](https://en.wikipedia.org/wiki/Prime_(liturgy) "Prime (liturgy)"), at the end of [compline](https://en.wikipedia.org/wiki/Compline "Compline"), and in some _[preces](https://en.wikipedia.org/wiki/Preces "Preces")_ (a series of [versicles](https://en.wikipedia.org/wiki/Versicle "Versicle") and responses preceded by, [eleison](https://en.wikipedia.org/wiki/Eleison "Eleison") ("Lord, have mercy") and the [Our Father](https://en.wikipedia.org/wiki/Our_Father "Our Father")) of prime and compline
 
 **Indulgence**
+
 Recitation of the _Apostles' Creed_ or the _[Nicene-Constantinopolitan Creed](https://en.wikipedia.org/wiki/Nicene_Creed "Nicene Creed")_ is required to obtain a partial [indulgence](https://en.wikipedia.org/wiki/Indulgence "Indulgence").
 
 **Catechism**
+
 In Luther's preface to his '[Small Catechism](https://en.wikipedia.org/wiki/Luther%27s_Small_Catechism "Luther's Small Catechism")' which makes up part of the [Book of Concord](https://en.wikipedia.org/wiki/Book_of_Concord "Book of Concord") that contains the symbolical documents of the Lutheran Church, it is suggested to commit the Creed, along with the [Decalogue](https://en.wikipedia.org/wiki/Ten_Commandments "Ten Commandments") and [Lord's Prayer](https://en.wikipedia.org/wiki/Lord%27s_Prayer "Lord's Prayer") to memory.
 
-
+**Rosary**
 
 https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
