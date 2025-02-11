@@ -85,7 +85,7 @@ In Luther's preface to his '[Small Catechism](https://en.wikipedia.org/wiki/Luth
 
 **ECUMENICAL**
 
-1. We believe and firmly maintain all that is contained in the twelve articles of the symbol, commonly called the apostles’ creed, and we regard as heretical whatever is inconsistent with the said twelve articles. - very first article of the very first Protestant COnfession, The **Waldensian** Confessions of Faith (Circa 1120). 
+1. We believe and firmly maintain all that is contained in the twelve articles of the symbol, commonly called the apostles’ creed, and we regard as heretical whatever is inconsistent with the said twelve articles. - very first article of the very first Protestant Confession, The **Waldensian** Confessions of Faith (Circa 1120). 
 
 IV. Of the Creed. THe Creed, commonly called the Apostles' Creed ought to be received and believed: because it may be proved by the Holy Scripture. **Protestant Episcopal Church** Articles of Religion 1786
 
