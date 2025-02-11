@@ -84,6 +84,9 @@ In Luther's preface to his '[Small Catechism](https://en.wikipedia.org/wiki/Luth
 **Rosary**
 
 **ECUMENICAL**
+
 The **Reformed Episcopal Church**, holding "the faith once delivered unto the saints", declares its belief in the Holy Scriptures of the Old and New Testaments as the Word of God, as the sole rule of Faith and Practice; in the Creed "commonly called the Apostles' Creed;"  - Article 1 of Declaration of Principles 1873
+
+IV. Of the Creed. THe Creed, commonly called the Apostles' Creed ought to be received and believed: because it may be proved by the Holy Scripture. **Protestant Episcopal Church** Articles of Religion 1786
 
 https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
