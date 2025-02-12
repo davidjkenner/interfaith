@@ -91,4 +91,6 @@ IV. Of the Creed. THe Creed, commonly called the Apostles' Creed ought to be rec
 
 The **Reformed Episcopal Church**, holding "the faith once delivered unto the saints", declares its belief in the Holy Scriptures of the Old and New Testaments as the Word of God, as the sole rule of Faith and Practice; in the Creed "commonly called the Apostles' Creed; in the Divine institution of the Sacraments of Baptism and the Lord's Supper"  - Article 1 of Declaration of Principles 1873
 
+General Liturgy 1 P.1-12; Baptism P. 165-169; Confirmation and Affirmation of Baptism P.170-174. Book of Worship 1995 **Moravian Church in America**
+
 https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
