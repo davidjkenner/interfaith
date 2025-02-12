@@ -95,4 +95,6 @@ General Liturgy 1 P.1-12; Baptism P. 165-169; Confirmation and Affirmation of Ba
 
 Order of Worship, Protestant. Shorter Form. #613 with Apostle's Creed #728; The Rosary #622. Book of Worship for United States Forces. 1974 **US Armed Forces**
 
+Affirmation of Faith #490 Hymnbook for Christian Worship. 1970  **American Baptist Convention**
+
 https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
