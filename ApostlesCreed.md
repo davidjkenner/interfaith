@@ -101,4 +101,6 @@ Affirmation of Faith #359 Chalice Hymnal 1995. Affirmation of Faith #494 Chalice
 
 Authorized Affirmation of Faith P.141; Holy Baptism P.344-363. Morning and Evening Prayer on Sunday P.29-45; Common Worship 2000.  **Church of England**
 
+Holy Baptism P.151-165; Holy Eucharist P.174-215 for Sundays (except major festivals). The Book of Alternate Services 1985. **Anglican Church in Canada**
+
 https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
