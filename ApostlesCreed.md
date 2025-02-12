@@ -93,4 +93,6 @@ The **Reformed Episcopal Church**, holding "the faith once delivered unto the sa
 
 General Liturgy 1 P.1-12; Baptism P. 165-169; Confirmation and Affirmation of Baptism P.170-174. Book of Worship 1995 **Moravian Church in America**
 
+Order of Worship, Protestant. Shorter Form. #613 with Apostle's Creed #728; The Rosary #622. Book of Worship for United States Forces. 1974 **US Armed Forces**
+
 https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
