@@ -1,4 +1,4 @@
-Wings of Song (1984)
+**Wings of Song** (1984)
 
 READINGS
 
@@ -36,3 +36,16 @@ HYMNS
 #370 Lord Bless This House by James Dillet Freeman
 
 #376 Invocation by Charles Fillmore
+
+**Unity Song Selection**
+
+Preface
+
+#252 Oh! That is Now Glory for Me by Myrtle Fillmore
+
+#315 Mother's Day
+
+#319 Sunday School
+
+#322 Offertory
+
