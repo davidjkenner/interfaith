@@ -1,3 +1,9 @@
+NOTE:
+
+Sunday Services are based upon **Beacon Song & Service Book** with other sources proving supplements
+
+Ceremonies are based upon **Handbook of Religious Services** with other sources proving supplements
+
 **PRELUDE** (Instrumental)
 
 
