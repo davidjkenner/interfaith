@@ -16,6 +16,8 @@ OPENING OF SERVICE (Unison) COL: 468-485
 **CHALICE LIGHTING**
 STL: 447-456
 RCW: 45-47
+TLI
+WLC
 
 **AFFIRMATIONS**
 AFFIRMATION (Unison) COL: 486-511
@@ -130,6 +132,8 @@ Unitarian Universalist
  5. RCW: Readings for Common Worship (1988)
  6. HRS: Handbook of Religious Services (1990)
  7. SLT: Singing the Living Tradition (1933)
+ 8. WLC: We Light this Chalice (1997)
+ 9. TLI: The Light Invisible (2203
 
 NOTES
 * Hymns are to be read first, then sung
