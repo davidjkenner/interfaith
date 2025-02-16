@@ -49,3 +49,24 @@ Preface
 
 #322 Offertory
 
+
+**Unity Song Selection** 1975
+
+Preface
+
+#192 Mothers Day
+
+#196 Affirmation responsive reading
+
+#200 Benediction
+
+
+**Unity Song Selection**
+
+P. 145 New Year Reponsive Reading
+
+P. 147 Easter Service
+
+P. 150 Thanksgiving
+
+P. 152 Christmas
