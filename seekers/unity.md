@@ -10,6 +10,9 @@ Blessing for a Church - James Dillet Freeman
 
 #80 The Answer by Lowell Fillmore
 
+#275 Make Me a Blessing by James Dillet Freeman
+
+
 HYMNS
 
 #2 The Lord's prayer
@@ -25,3 +28,11 @@ HYMNS
 #135 Healed by the Power Divine by Charles Fillmore
 
 #174 May the Blessing of God Rest upon You by Hazrat Inayat Khan
+
+#208 We Sing the New Religion by Ella Wheeler Wilcox
+
+#295 Day of Resurrection by John of Damascus
+
+#370 Lord Bless This House by James Dillet Freeman
+
+#376 Invocation by Charles Fillmore
