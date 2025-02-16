@@ -26,6 +26,7 @@ PRAYERS STL: 493-524
 COL: 328-467
 STL: 525-671
 RCW: 1-44
+WSL: 1-144
 
 ASCRIPTION OF PRAISE (Sung by assembly, standing)
 
@@ -118,7 +119,7 @@ SOURCES:
 Unitarian Universalist
  1. BSS: Beacon Song and Service Book (1935)
  2. LCW:Leading Children in Worship (1943)
- 3. We Speak of Life (1955)
+ 3. WSL:We Speak of Life (1955)
  4. COL: Hymns for the Celebration of Life (1964)
  5. RCW: Readings for Common Worship (1988)
  6. HRS: Handbook of Religious Services (1990)
