@@ -9,4 +9,14 @@
 7. load up care
 8. change clothes
 9. brush teeth
-10. car keys, wallet
+10. car keys, wallet, phone > top drawer
+11. Benedryl
+
+**Saturday Checklist**
+12. Money for church
+13. Brunch Reservations
+14. Military ID
+15. Gas up care & snacks for the road
+16. Books for the both kids9 AM Alarm
+17. Review NIGHTLY Checklist
+
