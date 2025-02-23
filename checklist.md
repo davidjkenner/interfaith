@@ -14,19 +14,26 @@
 
 **Saturday Checklist**
 12. Laundry: Strip folded sheets
-13. Pack swim bag
-14. Mop floors
-15. Review Catechism
-16. make beds
-17. Money for church
-18. Brunch Reservations
-19. Military ID
-20. Gas up care & snacks for the road
-21. Books for the both kids
-22. 9 AM Alarm
-23. Map for tomorrow
-24. Pick out Church clothes 
-25. Review NIGHTLY Checklist
+13. Clean Toilets
+14. Dishes
+15. Laundry
+16. update Walmart shopping list
+17. Pack swim bag
+18. Sweep & Mop floors
+19. Review Catechism
+20. make beds
+21. Take out trash
+22. Check mail
+23. Brunch Reservations
+24. Gas up care & snacks for the road
+25. Books for the both kids
+26. 9 AM Alarm
+27. Map for tomorrow
+28. Pick out Church clothes 
+29. Military ID
+30. Money for church
+31. Clear out
+32. Review NIGHTLY Checklist
 
 **SUNDAY CHECKLIST**
 
