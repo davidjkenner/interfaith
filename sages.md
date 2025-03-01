@@ -9,5 +9,9 @@
 9. James Dillet Freeman https://hymnary.org/text/all_the_earth_is_ablaze_with_the_glory
 10. [Trevor McNaughton](https://hymnary.org/person/McNaughton_Trevor)
 11. [Theodore Parker, 1810-1860](https://hymnary.org/person/Parker_Theodore)
-12. FILLER
+12. [Sophia Lyon Fahs, 1876-1978](https://hymnary.org/person/Fahs_Sophia)
+13. 
+
+
+14. FILLER
 
