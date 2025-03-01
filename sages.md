@@ -1,7 +1,7 @@
 Jesus of Nazareth
 https://hymnary.org/hymn/WOS1984/2
 
-[Peace Song](https://hymnary.org/hymn/WOS1984/3)
+[Jill Jackson](https://hymnary.org/person/Jackson_Jill?sort=desc&order=Instances)
 
 [Mary Eddy Baker](https://hymnary.org/person/Eddy_MB1)
 
