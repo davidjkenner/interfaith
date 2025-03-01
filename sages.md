@@ -5,6 +5,7 @@ https://hymnary.org/hymn/WOS1984/2
 
 [Mary Eddy Baker](https://hymnary.org/person/Eddy_MB1)
 
+[Myrtle Fillmore](https://hymnary.org/person/Fillmore_Myrtle)
 
 James Dillet Freeman
 https://hymnary.org/text/all_the_earth_is_ablaze_with_the_glory
