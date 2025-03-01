@@ -7,25 +7,7 @@
 7. Charles Fillmore
 8. [Myrtle Fillmore](https://hymnary.org/person/Fillmore_Myrtle)
 9. James Dillet Freeman https://hymnary.org/text/all_the_earth_is_ablaze_with_the_glory
-10. FILLMORE
+10. [Trevor McNaughton](https://hymnary.org/person/McNaughton_Trevor)
+11. [Theodore Parker, 1810-1860](https://hymnary.org/person/Parker_Theodore)
+12. FILLER
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-[Theodore Parker, 1810-1860](https://hymnary.org/person/Parker_Theodore)
