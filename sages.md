@@ -4,6 +4,8 @@ https://hymnary.org/hymn/WOS1984/2
 Moses
 https://hymnary.org/text/the_lord_bless_you_and_keep_you
 
+[Buddha](https://hymnary.org/hymnal/YBC41957?page=0)
+
 [Martin Luther](https://hymnary.org/person/Luther_Martin)
 
 [Jill Jackson](https://hymnary.org/person/Jackson_Jill?sort=desc&order=Instances)
