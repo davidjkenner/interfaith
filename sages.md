@@ -11,9 +11,10 @@
 11. [Theodore Parker, 1810-1860](https://hymnary.org/person/Parker_Theodore)
 12. [Sophia Lyon Fahs, 1876-1978](https://hymnary.org/person/Fahs_Sophia)
 13. [St. Francis of Assisi, 1182-1226](https://hymnary.org/person/Assisi_F1)
-14. 
+14. [Norbert F. Cǎpek, 1870-1942](https://hymnary.org/person/Capek_Norbert)
+15. 
 
 
 
-15. FILLER
+16. FILLER
 
