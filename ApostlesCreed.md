@@ -104,3 +104,30 @@ Authorized Affirmation of Faith P.141; Holy Baptism P.344-363. Morning and Eveni
 Holy Baptism P.151-165; Holy Eucharist P.174-215 for Sundays (except major festivals). The Book of Alternate Services 1985. **Anglican Church in Canada**
 
 https://apostles-creed.org/history-confessional-christian-theology/history-authority-of-the-apostles-creed/
+
+15th-century Flemish tapestry illustrating the first four articles of the Creed
+
+The [English Language Liturgical Consultation](https://en.wikipedia.org/wiki/English_Language_Liturgical_Consultation) (ELLC) is an international ecumenical group whose primary purpose is to provide ecumenically accepted texts for those who use English in their liturgy. In 1988 it produced a translation of the Apostles' Creed, distinguished among other things by its avoidance of the word "his" in relation to God. The text is as follows:[[23]](https://en.wikipedia.org/wiki/Apostles%27_Creed#cite_note-24)
+
+[​Eastern Orthodox](https://www.easternorthodoxchristian.com/the-apostles-creed)
+
+I believe in God, the Father almighty,  
+creator of heaven and earth.  
+I believe in Jesus Christ, God's only Son, our Lord,  
+who was conceived by the Holy Spirit,  
+born of the Virgin Mary,  
+suffered under Pontius Pilate,  
+was crucified, died, and was buried;  
+he descended to the dead.  
+On the third day he rose again;  
+he ascended into heaven,  
+he is seated at the right hand of the Father,  
+and he will come to judge the living and the dead.  
+I believe in the Holy Spirit,  
+the holy catholic Church,  
+the communion of saints,  
+the forgiveness of sins,  
+the resurrection of the body,  
+and the life everlasting. Amen.
+
+
