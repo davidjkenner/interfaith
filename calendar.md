@@ -20,7 +20,10 @@ Gregory of Nazianzus
 -   12  [Aelred of Hexham](https://en.wikipedia.org/wiki/Ailred_of_Rievaulx "Ailred of Rievaulx"),  [Abbot](https://en.wikipedia.org/wiki/Abbot "Abbot")  of  [Rievaulx](https://en.wikipedia.org/wiki/Rievaulx_Abbey "Rievaulx Abbey"), 1167
 -   12  [Benedict Biscop](https://en.wikipedia.org/wiki/Benedict_Biscop "Benedict Biscop"), Abbot of  [Wearmouth](https://en.wikipedia.org/wiki/Monkwearmouth-Jarrow_Abbey "Monkwearmouth-Jarrow Abbey"), Scholar, 689
 
--   13  _**[Octave of the Epiphany - The Baptism of Our Lord](https://en.wikipedia.org/wiki/Baptism_of_Jesus "Baptism of Jesus")**_  (W) - historic, now commonly observed on the Sunday within the Octave of the Epiphany
+-   13 *[Hilary](https://en.wikipedia.org/wiki/Hilary_of_Poitiers "Hilary of Poitiers"),  [Bishop of Poitiers](https://en.wikipedia.org/wiki/Bishop_of_Poitiers "Bishop of Poitiers"), Teacher of the Faith, 367
+-   13  [Kentigern](https://en.wikipedia.org/wiki/Saint_Mungo "Saint Mungo")  (Mungo),  [Missionary](https://en.wikipedia.org/wiki/Missionary "Missionary")  Bishop in  [Strathclyde](https://en.wikipedia.org/wiki/Kingdom_of_Strathclyde "Kingdom of Strathclyde")  and  [Cumbria](https://en.wikipedia.org/wiki/Cumbria "Cumbria"), 603
+-   13  [George Fox](https://en.wikipedia.org/wiki/George_Fox "George Fox"), Founder of the  [Society of Friends](https://en.wikipedia.org/wiki/Religious_Society_of_Friends "Religious Society of Friends")  (the Quakers), 1691
+
 -   14  [Eivind Berggrav](https://en.wikipedia.org/wiki/Eivind_Berggrav "Eivind Berggrav"), Norwegian Lutheran bishop (Commemoration) W - ELCA
 -   15  [Martin Luther King Jr.](https://en.wikipedia.org/wiki/Martin_Luther_King_Jr. "Martin Luther King Jr."),  [renewer of society](https://en.wikipedia.org/wiki/Renewer_of_Society "Renewer of Society"), martyr, 1968 (Commemoration) R – ELCA
 -   16
@@ -54,9 +57,7 @@ Gregory of Nazianzus
 
 
 
--   13 *[Hilary](https://en.wikipedia.org/wiki/Hilary_of_Poitiers "Hilary of Poitiers"),  [Bishop of Poitiers](https://en.wikipedia.org/wiki/Bishop_of_Poitiers "Bishop of Poitiers"), Teacher of the Faith, 367
--   13  [Kentigern](https://en.wikipedia.org/wiki/Saint_Mungo "Saint Mungo")  (Mungo),  [Missionary](https://en.wikipedia.org/wiki/Missionary "Missionary")  Bishop in  [Strathclyde](https://en.wikipedia.org/wiki/Kingdom_of_Strathclyde "Kingdom of Strathclyde")  and  [Cumbria](https://en.wikipedia.org/wiki/Cumbria "Cumbria"), 603
--   13  [George Fox](https://en.wikipedia.org/wiki/George_Fox "George Fox"), Founder of the  [Society of Friends](https://en.wikipedia.org/wiki/Religious_Society_of_Friends "Religious Society of Friends")  (the Quakers), 1691
+
 -   17 *[Antony of Egypt](https://en.wikipedia.org/wiki/Anthony_the_Great "Anthony the Great"),  [Hermit](https://en.wikipedia.org/wiki/Hermit "Hermit"), Abbot, 356
 -   17  [Charles Gore](https://en.wikipedia.org/wiki/Charles_Gore "Charles Gore"), Bishop, Founder of the  [Community of the Resurrection](https://en.wikipedia.org/wiki/Community_of_the_Resurrection "Community of the Resurrection"), 1932
 -   18–25  _[Week of Prayer for Christian Unity](https://en.wikipedia.org/wiki/Week_of_Prayer_for_Christian_Unity "Week of Prayer for Christian Unity")_
