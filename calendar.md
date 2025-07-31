@@ -6,8 +6,10 @@ Gregory of Nazianzus
 
 -   1  _**[Circumcision and Name of Jesus](https://en.wikipedia.org/wiki/Feast_of_the_Circumcision_of_Christ "Feast of the Circumcision of Christ")**_  (LCMS)  **Name of Jesus**  (ELCA) (W)
 -   2  [Johann Konrad Wilhelm Löhe](https://en.wikipedia.org/wiki/Johann_Konrad_Wilhelm_L%C3%B6he "Johann Konrad Wilhelm Löhe"), pastor, renewer of the church, 1872 (W)
+-   2:  [Eliza Marsden Hassall](https://en.wikipedia.org/wiki/Eliza_Marsden_Hassall "Eliza Marsden Hassall"), missionary (died 1917)
+
 -   3
--   4
+-   4  [Elizabeth Ann Seton](https://en.wikipedia.org/wiki/Elizabeth_Ann_Seton "Elizabeth Ann Seton"), Monastic and Educator, 1821
 -   5
 -   6  **[THE EPIPHANY OF OUR LORD](https://en.wikipedia.org/wiki/Epiphany_(Christian) "Epiphany (Christian)")**  (W)
 -   7
@@ -29,14 +31,22 @@ Gregory of Nazianzus
 -   16
 -   17  [Anthony of Egypt](https://en.wikipedia.org/wiki/Anthony_the_Great "Anthony the Great"), renewer of the church, c. 356 (Commemoration) W – ELCA
     -   [Pachomius](https://en.wikipedia.org/wiki/Pachomius "Pachomius"), renewer of the church, 346 (Commemoration) W – ELCA
+-   17  [Charles Gore](https://en.wikipedia.org/wiki/Charles_Gore "Charles Gore"), Bishop, Founder of the  [Community of the Resurrection](https://en.wikipedia.org/wiki/Community_of_the_Resurrection "Community of the Resurrection"), 1932
+
+-   18  [Amy Carmichael](https://en.wikipedia.org/wiki/Amy_Carmichael "Amy Carmichael"), Founder of the  [Dohnavur Fellowship](https://en.wikipedia.org/wiki/Dohnavur_Fellowship "Dohnavur Fellowship"), Spiritual Writer, 1951
 -   18  **[Confession of Peter](https://en.wikipedia.org/wiki/Confession_of_Peter "Confession of Peter")**  (W)
     -   [Week of Prayer for Christian Unity](https://en.wikipedia.org/wiki/Week_of_Prayer_for_Christian_Unity "Week of Prayer for Christian Unity")  Begins - ELCA
 -   19  [Henry](https://en.wikipedia.org/wiki/Bishop_Henry "Bishop Henry"), Bishop of Uppsala, missionary to Finland, martyr, 1156 (Commemoration) R – ELCA
+-   19 *[Wulfstan](https://en.wikipedia.org/wiki/Wulfstan,_Bishop_of_Worcester "Wulfstan, Bishop of Worcester"),  [Bishop of Worcester](https://en.wikipedia.org/wiki/Bishop_of_Worcester "Bishop of Worcester"), 1095
+
+-   20  [Richard Rolle](https://en.wikipedia.org/wiki/Richard_Rolle "Richard Rolle")  of  [Hampole](https://en.wikipedia.org/wiki/Hampole "Hampole"), Spiritual Writer, 1349
 -   20  [Sebastian, Martyr](https://en.wikipedia.org/wiki/Saint_Sebastian "Saint Sebastian")  (R) - Historic
     -   [Sarah](https://en.wikipedia.org/wiki/Sarah "Sarah"), matriarch (Commemoration) W – LCMS
 -   21  [Agnes, Virgin and Martyr](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes")  (R)
+-   21 *[Agnes](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes"), Child  [Martyr](https://en.wikipedia.org/wiki/Martyr "Martyr")  at  [Rome](https://en.wikipedia.org/wiki/Rome "Rome"), 304
 -   22  [Vincent of Saragossa](https://en.wikipedia.org/wiki/Vincent_of_Saragossa "Vincent of Saragossa"),  [Deacon](https://en.wikipedia.org/wiki/Deacon "Deacon"),  [first Martyr](https://en.wikipedia.org/wiki/List_of_protomartyrs "List of protomartyrs")  of  [Spain](https://en.wikipedia.org/wiki/Spain "Spain"), 304
 -   23
+-   24 *[Francis de Sales](https://en.wikipedia.org/wiki/Francis_de_Sales "Francis de Sales"),  [Bishop of Geneva](https://en.wikipedia.org/wiki/Bishop_of_Geneva "Bishop of Geneva"), Teacher of the Faith, 1622
 -   24  [Saint Timothy](https://en.wikipedia.org/wiki/Saint_Timothy "Saint Timothy"), pastor (Lesser Festival) W - LCMS
     
     [![](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/WilhelmLoehe.jpg/250px-WilhelmLoehe.jpg)](https://en.wikipedia.org/wiki/File:WilhelmLoehe.jpg)
@@ -45,6 +55,7 @@ Gregory of Nazianzus
     
 -   25  **[Conversion of Paul the Apostle](https://en.wikipedia.org/wiki/Conversion_of_Paul_the_Apostle "Conversion of Paul the Apostle")**  (W)
     -   Week of Prayer for Christian Unity Ends - ELCA
+-   25 †[The Conversion of Paul](https://en.wikipedia.org/wiki/Conversion_of_Paul "Conversion of Paul")
 -   26  [Timothy](https://en.wikipedia.org/wiki/Saint_Timothy "Saint Timothy"),  [Titus](https://en.wikipedia.org/wiki/Apostle_Titus "Apostle Titus"), and  [Silas](https://en.wikipedia.org/wiki/Silas "Silas"), missionaries (Commemoration) W – ELCA
     -   Saint Titus, pastor (Lesser Festival) W - LCMS
 -   27  [John Chrysostom](https://en.wikipedia.org/wiki/John_Chrysostom "John Chrysostom"), Bishop of Constantinople, 407 (W) – LCMS
@@ -58,18 +69,32 @@ Gregory of Nazianzus
 
 
 
--   17 *[Antony of Egypt](https://en.wikipedia.org/wiki/Anthony_the_Great "Anthony the Great"),  [Hermit](https://en.wikipedia.org/wiki/Hermit "Hermit"), Abbot, 356
--   17  [Charles Gore](https://en.wikipedia.org/wiki/Charles_Gore "Charles Gore"), Bishop, Founder of the  [Community of the Resurrection](https://en.wikipedia.org/wiki/Community_of_the_Resurrection "Community of the Resurrection"), 1932
--   18–25  _[Week of Prayer for Christian Unity](https://en.wikipedia.org/wiki/Week_of_Prayer_for_Christian_Unity "Week of Prayer for Christian Unity")_
--   18  [Amy Carmichael](https://en.wikipedia.org/wiki/Amy_Carmichael "Amy Carmichael"), Founder of the  [Dohnavur Fellowship](https://en.wikipedia.org/wiki/Dohnavur_Fellowship "Dohnavur Fellowship"), Spiritual Writer, 1951
--   19 *[Wulfstan](https://en.wikipedia.org/wiki/Wulfstan,_Bishop_of_Worcester "Wulfstan, Bishop of Worcester"),  [Bishop of Worcester](https://en.wikipedia.org/wiki/Bishop_of_Worcester "Bishop of Worcester"), 1095
--   20  [Richard Rolle](https://en.wikipedia.org/wiki/Richard_Rolle "Richard Rolle")  of  [Hampole](https://en.wikipedia.org/wiki/Hampole "Hampole"), Spiritual Writer, 1349
--   21 *[Agnes](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes"), Child  [Martyr](https://en.wikipedia.org/wiki/Martyr "Martyr")  at  [Rome](https://en.wikipedia.org/wiki/Rome "Rome"), 304
 
--   24 *[Francis de Sales](https://en.wikipedia.org/wiki/Francis_de_Sales "Francis de Sales"),  [Bishop of Geneva](https://en.wikipedia.org/wiki/Bishop_of_Geneva "Bishop of Geneva"), Teacher of the Faith, 1622
--   25 †[The Conversion of Paul](https://en.wikipedia.org/wiki/Conversion_of_Paul "Conversion of Paul")
+
+
+
+
+
+
+
+
+
 -   26 *[Timothy](https://en.wikipedia.org/wiki/Saint_Timothy "Saint Timothy")  and  [Titus](https://en.wikipedia.org/wiki/Apostle_Titus "Apostle Titus"), Companions of Paul
 -   28 *[Thomas Aquinas](https://en.wikipedia.org/wiki/Thomas_Aquinas "Thomas Aquinas"),  [Priest](https://en.wikipedia.org/wiki/Priest "Priest"),  [Philosopher](https://en.wikipedia.org/wiki/Philosophy "Philosophy"), Teacher of the Faith, 1274
+
+-   13:  [Hilary of Poitiers](https://en.wikipedia.org/wiki/Hilary_of_Poitiers "Hilary of Poitiers"), bishop and teacher (died 367)
+-   14:  [Sava](https://en.wikipedia.org/wiki/Saint_Sava "Saint Sava"), archbishop (died 1235)
+-   17:  [Anthony the Great](https://en.wikipedia.org/wiki/Anthony_the_Great "Anthony the Great"), abbot (died 356)
+-   18:  [Confession of Peter](https://en.wikipedia.org/wiki/Peter%27s_confession "Peter's confession")
+-   21:  [Agnes](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes"), martyr (died 304)
+-   22:  [Vincent of Saragossa](https://en.wikipedia.org/wiki/Vincent_of_Saragossa "Vincent of Saragossa"), deacon and martyr (died 304)
+-   24:  [Companions of Paul](https://en.wikipedia.org/wiki/Paul_of_Tarsus "Paul of Tarsus"), including  [Timothy](https://en.wikipedia.org/wiki/Saint_Timothy "Saint Timothy"),  [Titus](https://en.wikipedia.org/wiki/Apostle_Titus "Apostle Titus")  and  [Silas](https://en.wikipedia.org/wiki/Silas "Silas")
+-   25:  [Conversion of Paul](https://en.wikipedia.org/wiki/Paul_of_Tarsus#Early_life "Paul of Tarsus")
+-   26:  [Australia Day](https://en.wikipedia.org/wiki/Australia_Day "Australia Day")
+-   27:  [John Chrysostom](https://en.wikipedia.org/wiki/John_Chrysostom "John Chrysostom"), bishop and teacher (died 407)
+
+
+
 
 
 
