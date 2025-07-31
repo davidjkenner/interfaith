@@ -16,7 +16,8 @@ Just then a man came up to Jesus and inquired, “Rabbi, what good thing must I 
 
 “Why do you ask Me about what is good?” Jesus replied.  “There is only One who is good. If you want to enter life, keep the commandments.”
  “‘
- 3. Do not murder, 
+ 
+ 3. Do not murder
  4. do not commit adultery, 
  5. do not steal, 
  6. do not bear false witness, 
