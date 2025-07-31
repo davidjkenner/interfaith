@@ -15,7 +15,7 @@ The Rich Young Man
 Just then a man came up to Jesus and inquired, “Rabbi, what good thing must I do to obtain eternal life?”
 
 “Why do you ask Me about what is good?” Jesus replied.  “There is only One who is good. If you want to enter life, keep the commandments.”
- “‘
+
  
  3. Do not murder
  4. do not commit adultery, 
@@ -26,6 +26,7 @@ Just then a man came up to Jesus and inquired, “Rabbi, what good thing must I 
 “All these I have kept,” said the young man. “What do I still lack?”
 
 Jesus told him,  “If you want to be perfect, go, 
+
 8. sell your possessions and 
 9. give to the poor, and you will have treasure in heaven. 
 10. Then come, follow Me.”
