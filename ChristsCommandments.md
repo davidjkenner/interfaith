@@ -8,12 +8,6 @@ The Greatest Commandment
  
 “Right, Rabbi,” the scribe replied. “You have stated correctly that God is One and there is no other but Him, and to love Him with all your heart and with all your understanding and with all your strength, and to love your neighbor as yourself, which is more important than all burnt offerings and sacrifices.”
 
- 3. Thou shalt do no murder
- 4. Thou shalt not commit adultery
- 5. Thou shalt not steal
- 6. Thou shalt not bear false witness
- 7. honor your father and mother
-
 Matthew 19:16-21
 The Rich Young Man  
 ([Mark 10:17–31](https://biblehub.com/mark/10.htm#17);  [Luke 18:18–30](https://biblehub.com/luke/18.htm#18))
