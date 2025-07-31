@@ -14,8 +14,12 @@ Gregory of Nazianzus
 -   8
 -   9
 -   10  [St. Basil the Great](https://en.wikipedia.org/wiki/Basil_of_Caesarea "Basil of Caesarea"), Bishop of Caesarea, 379;  [Gregory of Nazianzus](https://en.wikipedia.org/wiki/Gregory_of_Nazianzus "Gregory of Nazianzus"), Bishop of Constantinople, c. 389;  [Gregory](https://en.wikipedia.org/wiki/Gregory_of_Nyssa "Gregory of Nyssa"), Bishop of Nyssa, c. 385 (Commemoration) W – LCMS
--   11
--   12
+-   10  [William Laud](https://en.wikipedia.org/wiki/William_Laud "William Laud"),  [Archbishop of Canterbury](https://en.wikipedia.org/wiki/Archbishop_of_Canterbury "Archbishop of Canterbury"), 1645
+
+-   11  [Mary Slessor](https://en.wikipedia.org/wiki/Mary_Slessor "Mary Slessor"),  [Missionary](https://en.wikipedia.org/wiki/Missionary "Missionary")  in  [West Africa](https://en.wikipedia.org/wiki/West_Africa "West Africa"), 1915
+-   12  [Aelred of Hexham](https://en.wikipedia.org/wiki/Ailred_of_Rievaulx "Ailred of Rievaulx"),  [Abbot](https://en.wikipedia.org/wiki/Abbot "Abbot")  of  [Rievaulx](https://en.wikipedia.org/wiki/Rievaulx_Abbey "Rievaulx Abbey"), 1167
+-   12  [Benedict Biscop](https://en.wikipedia.org/wiki/Benedict_Biscop "Benedict Biscop"), Abbot of  [Wearmouth](https://en.wikipedia.org/wiki/Monkwearmouth-Jarrow_Abbey "Monkwearmouth-Jarrow Abbey"), Scholar, 689
+
 -   13  _**[Octave of the Epiphany - The Baptism of Our Lord](https://en.wikipedia.org/wiki/Baptism_of_Jesus "Baptism of Jesus")**_  (W) - historic, now commonly observed on the Sunday within the Octave of the Epiphany
 -   14  [Eivind Berggrav](https://en.wikipedia.org/wiki/Eivind_Berggrav "Eivind Berggrav"), Norwegian Lutheran bishop (Commemoration) W - ELCA
 -   15  [Martin Luther King Jr.](https://en.wikipedia.org/wiki/Martin_Luther_King_Jr. "Martin Luther King Jr."),  [renewer of society](https://en.wikipedia.org/wiki/Renewer_of_Society "Renewer of Society"), martyr, 1968 (Commemoration) R – ELCA
@@ -28,7 +32,7 @@ Gregory of Nazianzus
 -   20  [Sebastian, Martyr](https://en.wikipedia.org/wiki/Saint_Sebastian "Saint Sebastian")  (R) - Historic
     -   [Sarah](https://en.wikipedia.org/wiki/Sarah "Sarah"), matriarch (Commemoration) W – LCMS
 -   21  [Agnes, Virgin and Martyr](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes")  (R)
--   22
+-   22  [Vincent of Saragossa](https://en.wikipedia.org/wiki/Vincent_of_Saragossa "Vincent of Saragossa"),  [Deacon](https://en.wikipedia.org/wiki/Deacon "Deacon"),  [first Martyr](https://en.wikipedia.org/wiki/List_of_protomartyrs "List of protomartyrs")  of  [Spain](https://en.wikipedia.org/wiki/Spain "Spain"), 304
 -   23
 -   24  [Saint Timothy](https://en.wikipedia.org/wiki/Saint_Timothy "Saint Timothy"), pastor (Lesser Festival) W - LCMS
     
@@ -44,8 +48,30 @@ Gregory of Nazianzus
     -   [Lydia](https://en.wikipedia.org/wiki/Lydia_of_Thyatira "Lydia of Thyatira"),  [Dorcas](https://en.wikipedia.org/wiki/Dorcas "Dorcas"), and  [Phoebe](https://en.wikipedia.org/wiki/Phoebe_(Christian_woman) "Phoebe (Christian woman)"), witnesses to the faith (Commemoration) W – ELCA
 -   28  [Thomas Aquinas](https://en.wikipedia.org/wiki/Thomas_Aquinas "Thomas Aquinas"), teacher, 1274 (Commemoration) W – ELCA
 -   29
--   30
--   31
+-   30 *[Charles, King and Martyr](https://en.wikipedia.org/wiki/Charles,_King_and_Martyr "Charles, King and Martyr"), 1649
+-   31  [John Bosco](https://en.wikipedia.org/wiki/John_Bosco "John Bosco"), Priest, Founder of the  [Salesian Teaching Order](https://en.wikipedia.org/wiki/Salesians_of_Don_Bosco "Salesians of Don Bosco"), 1888
+
+
+
+
+-   13 *[Hilary](https://en.wikipedia.org/wiki/Hilary_of_Poitiers "Hilary of Poitiers"),  [Bishop of Poitiers](https://en.wikipedia.org/wiki/Bishop_of_Poitiers "Bishop of Poitiers"), Teacher of the Faith, 367
+-   13  [Kentigern](https://en.wikipedia.org/wiki/Saint_Mungo "Saint Mungo")  (Mungo),  [Missionary](https://en.wikipedia.org/wiki/Missionary "Missionary")  Bishop in  [Strathclyde](https://en.wikipedia.org/wiki/Kingdom_of_Strathclyde "Kingdom of Strathclyde")  and  [Cumbria](https://en.wikipedia.org/wiki/Cumbria "Cumbria"), 603
+-   13  [George Fox](https://en.wikipedia.org/wiki/George_Fox "George Fox"), Founder of the  [Society of Friends](https://en.wikipedia.org/wiki/Religious_Society_of_Friends "Religious Society of Friends")  (the Quakers), 1691
+-   17 *[Antony of Egypt](https://en.wikipedia.org/wiki/Anthony_the_Great "Anthony the Great"),  [Hermit](https://en.wikipedia.org/wiki/Hermit "Hermit"), Abbot, 356
+-   17  [Charles Gore](https://en.wikipedia.org/wiki/Charles_Gore "Charles Gore"), Bishop, Founder of the  [Community of the Resurrection](https://en.wikipedia.org/wiki/Community_of_the_Resurrection "Community of the Resurrection"), 1932
+-   18–25  _[Week of Prayer for Christian Unity](https://en.wikipedia.org/wiki/Week_of_Prayer_for_Christian_Unity "Week of Prayer for Christian Unity")_
+-   18  [Amy Carmichael](https://en.wikipedia.org/wiki/Amy_Carmichael "Amy Carmichael"), Founder of the  [Dohnavur Fellowship](https://en.wikipedia.org/wiki/Dohnavur_Fellowship "Dohnavur Fellowship"), Spiritual Writer, 1951
+-   19 *[Wulfstan](https://en.wikipedia.org/wiki/Wulfstan,_Bishop_of_Worcester "Wulfstan, Bishop of Worcester"),  [Bishop of Worcester](https://en.wikipedia.org/wiki/Bishop_of_Worcester "Bishop of Worcester"), 1095
+-   20  [Richard Rolle](https://en.wikipedia.org/wiki/Richard_Rolle "Richard Rolle")  of  [Hampole](https://en.wikipedia.org/wiki/Hampole "Hampole"), Spiritual Writer, 1349
+-   21 *[Agnes](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes"), Child  [Martyr](https://en.wikipedia.org/wiki/Martyr "Martyr")  at  [Rome](https://en.wikipedia.org/wiki/Rome "Rome"), 304
+
+-   24 *[Francis de Sales](https://en.wikipedia.org/wiki/Francis_de_Sales "Francis de Sales"),  [Bishop of Geneva](https://en.wikipedia.org/wiki/Bishop_of_Geneva "Bishop of Geneva"), Teacher of the Faith, 1622
+-   25 †[The Conversion of Paul](https://en.wikipedia.org/wiki/Conversion_of_Paul "Conversion of Paul")
+-   26 *[Timothy](https://en.wikipedia.org/wiki/Saint_Timothy "Saint Timothy")  and  [Titus](https://en.wikipedia.org/wiki/Apostle_Titus "Apostle Titus"), Companions of Paul
+-   28 *[Thomas Aquinas](https://en.wikipedia.org/wiki/Thomas_Aquinas "Thomas Aquinas"),  [Priest](https://en.wikipedia.org/wiki/Priest "Priest"),  [Philosopher](https://en.wikipedia.org/wiki/Philosophy "Philosophy"), Teacher of the Faith, 1274
+
+
+
 
 ## February
 
