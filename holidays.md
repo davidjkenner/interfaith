@@ -2,7 +2,17 @@
 2. [Preamble to the National Council of Churches of Christ](https://en.wikipedia.org/wiki/National_Council_of_Churches)
 3. [Apostles Creed](https://en.wikipedia.org/wiki/Apostles%27_Creed)
 
+## January
+
+[![](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5d/Gregor-Chora_%28cropped%29.jpg/250px-Gregor-Chora_%28cropped%29.jpg)](https://en.wikipedia.org/wiki/File:Gregor-Chora_(cropped).jpg)
+
 - January 1  [New Year's Day](https://en.wikipedia.org/wiki/New_Year%27s_Day)
+-   2  [Johann Konrad Wilhelm Löhe](https://en.wikipedia.org/wiki/Johann_Konrad_Wilhelm_L%C3%B6he "Johann Konrad Wilhelm Löhe"), pastor, renewer of the church, 1872 (W)
+-   2:  [Eliza Marsden Hassall](https://en.wikipedia.org/wiki/Eliza_Marsden_Hassall "Eliza Marsden Hassall"), missionary (died 1917)
+
+-   3
+-   4  [Elizabeth Ann Seton](https://en.wikipedia.org/wiki/Elizabeth_Ann_Seton "Elizabeth Ann Seton"), Monastic and Educator, 1821
+-   5
 -   January 6 – Three Kings Day
 -   January 8–14 (2nd Monday) –  [Eugenio María de Hostos](https://en.wikipedia.org/wiki/Eugenio_Mar%C3%ADa_de_Hostos "Eugenio María de Hostos")  Birthday
 -   January 16:  [Religious Freedom Day](https://en.wikipedia.org/wiki/National_Religious_Freedom_Day "National Religious Freedom Day")
