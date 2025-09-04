@@ -13,7 +13,22 @@
 -   3
 -   4  [Elizabeth Ann Seton](https://en.wikipedia.org/wiki/Elizabeth_Ann_Seton "Elizabeth Ann Seton"), Monastic and Educator, 1821
 -   5
--   January 6 – Three Kings Day
+
+-   6  **[THE EPIPHANY OF OUR LORD](https://en.wikipedia.org/wiki/Epiphany_(Christian) "Epiphany (Christian)")**  (W) Three Kings Day
+
+-   10  [St. Basil the Great](https://en.wikipedia.org/wiki/Basil_of_Caesarea "Basil of Caesarea"), Bishop of Caesarea, 379;  [Gregory of Nazianzus](https://en.wikipedia.org/wiki/Gregory_of_Nazianzus "Gregory of Nazianzus"), Bishop of Constantinople, c. 389;  [Gregory](https://en.wikipedia.org/wiki/Gregory_of_Nyssa "Gregory of Nyssa"), Bishop of Nyssa, c. 385 (Commemoration) W – LCMS
+-   10  [William Laud](https://en.wikipedia.org/wiki/William_Laud "William Laud"),  [Archbishop of Canterbury](https://en.wikipedia.org/wiki/Archbishop_of_Canterbury "Archbishop of Canterbury"), 1645
+
+-   11  [Mary Slessor](https://en.wikipedia.org/wiki/Mary_Slessor "Mary Slessor"),  [Missionary](https://en.wikipedia.org/wiki/Missionary "Missionary")  in  [West Africa](https://en.wikipedia.org/wiki/West_Africa "West Africa"), 1915
+-   12  [Aelred of Hexham](https://en.wikipedia.org/wiki/Ailred_of_Rievaulx "Ailred of Rievaulx"),  [Abbot](https://en.wikipedia.org/wiki/Abbot "Abbot")  of  [Rievaulx](https://en.wikipedia.org/wiki/Rievaulx_Abbey "Rievaulx Abbey"), 1167
+-   12  [Benedict Biscop](https://en.wikipedia.org/wiki/Benedict_Biscop "Benedict Biscop"), Abbot of  [Wearmouth](https://en.wikipedia.org/wiki/Monkwearmouth-Jarrow_Abbey "Monkwearmouth-Jarrow Abbey"), Scholar, 689
+
+-   13 *[Hilary](https://en.wikipedia.org/wiki/Hilary_of_Poitiers "Hilary of Poitiers"),  [Bishop of Poitiers](https://en.wikipedia.org/wiki/Bishop_of_Poitiers "Bishop of Poitiers"), Teacher of the Faith, 367
+-   13  [Kentigern](https://en.wikipedia.org/wiki/Saint_Mungo "Saint Mungo")  (Mungo),  [Missionary](https://en.wikipedia.org/wiki/Missionary "Missionary")  Bishop in  [Strathclyde](https://en.wikipedia.org/wiki/Kingdom_of_Strathclyde "Kingdom of Strathclyde")  and  [Cumbria](https://en.wikipedia.org/wiki/Cumbria "Cumbria"), 603
+-   13  [George Fox](https://en.wikipedia.org/wiki/George_Fox "George Fox"), Founder of the  [Society of Friends](https://en.wikipedia.org/wiki/Religious_Society_of_Friends "Religious Society of Friends")  (the Quakers), 1691
+
+-   14  [Eivind Berggrav](https://en.wikipedia.org/wiki/Eivind_Berggrav "Eivind Berggrav"), Norwegian Lutheran bishop (Commemoration) W - ELCA
+
 -   January 8–14 (2nd Monday) –  [Eugenio María de Hostos](https://en.wikipedia.org/wiki/Eugenio_Mar%C3%ADa_de_Hostos "Eugenio María de Hostos")  Birthday
 -   January 16:  [Religious Freedom Day](https://en.wikipedia.org/wiki/National_Religious_Freedom_Day "National Religious Freedom Day")
 - January 19 [Robert E. Lee Day](https://en.wikipedia.org/wiki/Robert_E._Lee_Day)
@@ -25,17 +40,37 @@
 - January 26 [Australia Day](https://en.wikipedia.org/wiki/Australia_Day)
 - January 27 [International Holocaust Remembrance Day](https://en.wikipedia.org/wiki/International_Holocaust_Remembrance_Day)
 
+**February** Welsh Heritage Month
 
 -  February 3 – March 9 (floating Tuesday using  [Computus](https://en.wikipedia.org/wiki/Computus "Computus")) –  [Mardi Gras](https://en.wikipedia.org/wiki/Mardi_Gras "Mardi Gras") [Shrove Tuesday](https://en.wikipedia.org/wiki/Shrove_Tuesday)
 -   February 6 –  [Ronald Reagan Day](https://en.wikipedia.org/wiki/Ronald_Reagan_Day "Ronald Reagan Day")  (schools open, but with related instructions)
+- February 6 [Waitangi Day](https://en.wikipedia.org/wiki/Waitangi_Day)
 - February 12 [Lincoln's Birthday](https://en.wikipedia.org/wiki/Lincoln%27s_Birthday "Lincoln's Birthday")  
 - February 14 [Valentine's Day](https://en.wikipedia.org/wiki/Valentine%27s_Day "Valentine's Day"), 
 - February 15–21 (3rd Monday) – [Presidents' Day](https://en.wikipedia.org/wiki/Presidents%27_Day "Presidents' Day")
 -   February 15:  [Susan B. Anthony Day](https://en.wikipedia.org/wiki/Susan_B._Anthony_Day "Susan B. Anthony Day")
+
+-   17  [Anthony of Egypt](https://en.wikipedia.org/wiki/Anthony_the_Great "Anthony the Great"), renewer of the church, c. 356 (Commemoration) W – ELCA
+    -   [Pachomius](https://en.wikipedia.org/wiki/Pachomius "Pachomius"), renewer of the church, 346 (Commemoration) W – ELCA
+-   17  [Charles Gore](https://en.wikipedia.org/wiki/Charles_Gore "Charles Gore"), Bishop, Founder of the  [Community of the Resurrection](https://en.wikipedia.org/wiki/Community_of_the_Resurrection "Community of the Resurrection"), 1932
+
+-   18  [Amy Carmichael](https://en.wikipedia.org/wiki/Amy_Carmichael "Amy Carmichael"), Founder of the  [Dohnavur Fellowship](https://en.wikipedia.org/wiki/Dohnavur_Fellowship "Dohnavur Fellowship"), Spiritual Writer, 1951
+-   18  **[Confession of Peter](https://en.wikipedia.org/wiki/Confession_of_Peter "Confession of Peter")**  (W)
+    -   [Week of Prayer for Christian Unity](https://en.wikipedia.org/wiki/Week_of_Prayer_for_Christian_Unity "Week of Prayer for Christian Unity")  Begins - ELCA
+-   19  [Henry](https://en.wikipedia.org/wiki/Bishop_Henry "Bishop Henry"), Bishop of Uppsala, missionary to Finland, martyr, 1156 (Commemoration) R – ELCA
+-   19 *[Wulfstan](https://en.wikipedia.org/wiki/Wulfstan,_Bishop_of_Worcester "Wulfstan, Bishop of Worcester"),  [Bishop of Worcester](https://en.wikipedia.org/wiki/Bishop_of_Worcester "Bishop of Worcester"), 1095
+
+-   20  [Richard Rolle](https://en.wikipedia.org/wiki/Richard_Rolle "Richard Rolle")  of  [Hampole](https://en.wikipedia.org/wiki/Hampole "Hampole"), Spiritual Writer, 1349
+-   20  [Sebastian, Martyr](https://en.wikipedia.org/wiki/Saint_Sebastian "Saint Sebastian")  (R) - Historic
+    -   [Sarah](https://en.wikipedia.org/wiki/Sarah "Sarah"), matriarch (Commemoration) W – LCMS
+-   21  [Agnes, Virgin and Martyr](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes")  (R)
+-   21 *[Agnes](https://en.wikipedia.org/wiki/Saint_Agnes "Saint Agnes"), Child  [Martyr](https://en.wikipedia.org/wiki/Martyr "Martyr")  at  [Rome](https://en.wikipedia.org/wiki/Rome "Rome"), 304
+-   22  [Vincent of Saragossa](https://en.wikipedia.org/wiki/Vincent_of_Saragossa "Vincent of Saragossa"),  [Deacon](https://en.wikipedia.org/wiki/Deacon "Deacon"),  [first Martyr](https://en.wikipedia.org/wiki/List_of_protomartyrs "List of protomartyrs")  of  [Spain](https://en.wikipedia.org/wiki/Spain "Spain"), 304
+
 - February 22: [Washington's Birthday](https://en.wikipedia.org/wiki/Presidents%27_Day)
 - 2 February and 8 March [Shrove Monday](https://en.wikipedia.org/wiki/Shrove_Monday)
 - 4 February and 10 March [Ash Wednesday](https://en.wikipedia.org/wiki/Ash_Wednesday "Ash Wednesday")
-- February 6 [Waitangi Day](https://en.wikipedia.org/wiki/Waitangi_Day)
+
 
  **March:**  [Irish-American Heritage Month](https://en.wikipedia.org/wiki/Irish-American_Heritage_Month "Irish-American Heritage Month")[[35]](https://en.wikipedia.org/wiki/List_of_observances_in_the_United_States_by_presidential_proclamation#cite_note-35)
 **Women's History Month**
